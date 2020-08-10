@@ -1,4 +1,4 @@
-### Bonjour!I'm Nitish Awasthi 👋
+### Bonjour!I'm Nitish Awasth 👋
 
 Here are some ideas to get you started:
 
