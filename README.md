@@ -14,6 +14,11 @@
 
 # I am *willing to collaborate as a team player building better code.*
 
+### Hit this over the terminal or console, to know more about me.
+```
+npx nitish
+```
+
 ### I know more about- </br>
 ![C](https://img.shields.io/badge/-C-000000?style=for-the-badge&logo=C)
 ![C++](https://img.shields.io/badge/-C++-000000?style=for-the-badge&logo=C%2B%2B&logoColor=00599C)
