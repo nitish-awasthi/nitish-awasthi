@@ -2,7 +2,6 @@
 
 Here are some ideas to get you started:
 
-
 - 🔭 I’m currently working on **Competitive Coding**.
 - 🌱 I’m currently learning **Open Source Contribution.**
 - 👯 I’m looking to collaborate on **every project.**
