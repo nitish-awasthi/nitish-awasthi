@@ -12,7 +12,7 @@
 - 💬 Ask me about **Technology, Aviation, Troubleshooting, Psychology, Neuroscience, History, Nature.**
 - ⚡ Fun fact: **The first message sent over the internet was "LOG". "LOGIN" was the original intended message but the entire system crashed. This was done at MIT.**
 
-# I am *willing to collaborate as a team player building better code.*
+# *I am willing to collaborate as a team player building better code.*
 
 ### Hit this over the terminal or console, to know more about me.
 ```
