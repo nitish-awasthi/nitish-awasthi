@@ -52,3 +52,6 @@ npx nitish
     <a href="mailto:anitish.225@gmail.com" alt="Contact me"><img src="https://github.com/nitish-awasthi/nitish-awasthi/blob/master/gmail-512.webp" height="30" width="30"></a>
     <a href="https://nitishawasthi.com" alt="My site"><img src="https://raw.githubusercontent.com/jayehernandez/jayehernandez/3f5402efef9a0ae89211a6e04609558e862ca616/readme/external-link-line.svg"></a>
   </p>
+
+
+[![HitCount](http://hits.dwyl.com/nitish-awasthi/{project}.svg)](http://hits.dwyl.com/nitish-awasthi/{project})
