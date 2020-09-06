@@ -54,4 +54,3 @@ npx nitish
   </p>
 
 
-[![HitCount](http://hits.dwyl.com/nitish-awasthi/{project}.svg)](http://hits.dwyl.com/nitish-awasthi/{project})
