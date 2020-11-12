@@ -1,4 +1,4 @@
-### <h2>नमस्ते (Namaste)🙏🏻, I'm Nitish!
+### <h2>नमस्ते (Namaste)🙏🏻, I'm
   </br>
 
 <img align="left"  src="https://media.giphy.com/media/QvkZcmITuZ3RejQOtQ/giphy.gif" alt="Nitish Awasthi" width="600" height="150"/> &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp;
