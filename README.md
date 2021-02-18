@@ -5,7 +5,7 @@
 <img align="" src="https://media.giphy.com/media/jRf5fsn8G6YaogAWxn/giphy.gif" width="200" height="200"/>
 </br></br></br>
 
->>>>>>>>> [![trophy](https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories)](https://github.com/nitish-awasthi/github-profile-trophy)
+<p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
  
 ### Here are some ideas to get you started:</br>
 - 🔭 I’m currently more into the **Programming**
@@ -41,7 +41,7 @@ npx nitish
 ![TRELLO](http://img.shields.io/badge/-Trello-000000?style=for-the-badge&logo=trello&logoColor=blue)
 </br></br></br></br>
 
-
+&nbsp;
 <p align="center">
   <i>Let's connect and chat! Open to anything under the sun.</i>
 
