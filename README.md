@@ -4,6 +4,9 @@
 <img align="left"  src="https://media.giphy.com/media/QvkZcmITuZ3RejQOtQ/giphy.gif" alt="Nitish Awasthi" width="600" height="150"/> &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp;
 <img align="" src="https://media.giphy.com/media/jRf5fsn8G6YaogAWxn/giphy.gif" width="200" height="200"/>
 </br></br></br>
+
+>>>>>>>>> [![trophy](https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories)](https://github.com/nitish-awasthi/github-profile-trophy)
+ 
 ### Here are some ideas to get you started:</br>
 - 🔭 I’m currently more into the **Programming**
 - 🌱 I’m currently learning **Open Source Contribution.**
