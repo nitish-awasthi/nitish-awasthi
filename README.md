@@ -22,7 +22,7 @@
 
 </br></br>
 
-https://github-readme-streak-stats.herokuapp.com/?user=nitish-awasthi
+![Nitish's stats](https://github-readme-streak-stats.herokuapp.com/?user=nitish-awasthi)
 
 </br></br>
 
