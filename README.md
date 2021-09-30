@@ -17,13 +17,14 @@
 </br></br>
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
-
-![Nitish's github activity graph](https://activity-graph.herokuapp.com/graph?username=nitish-awasthi&theme=xcode)
-
-</br></br>
 <!-- QUOTE:START -->
 <!-- QUOTE:END -->
 </br></br>
+![Nitish's github activity graph](https://activity-graph.herokuapp.com/graph?username=nitish-awasthi&theme=xcode)
+
+</br></br>
+
+
 
 ![Nitish's stats](https://github-readme-streak-stats.herokuapp.com/?user=nitish-awasthi)
 
