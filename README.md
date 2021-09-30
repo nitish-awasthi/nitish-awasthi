@@ -21,6 +21,7 @@
 <p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
+
 ![Nitish's github activity graph](https://activity-graph.herokuapp.com/graph?username=nitish-awasthi&theme=xcode)
 
 </br></br>
