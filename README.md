@@ -18,6 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
+<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 ![Nitish's github activity graph](https://activity-graph.herokuapp.com/graph?username=nitish-awasthi&theme=xcode)
