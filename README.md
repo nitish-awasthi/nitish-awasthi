@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center" ><br><i><b>He who knows that enough is enough will always have enough.</i><br><i>– Laozi.</b></i><br></p>
+<p align="center"><br><i>The only limit to our realization of tomorrow will be our doubts of today.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
