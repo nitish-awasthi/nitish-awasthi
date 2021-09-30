@@ -21,6 +21,9 @@
 ![Nitish's github activity graph](https://activity-graph.herokuapp.com/graph?username=nitish-awasthi&theme=xcode)
 
 </br></br>
+<!-- QUOTE:START -->
+<!-- QUOTE:END -->
+</br></br>
 
 ![Nitish's stats](https://github-readme-streak-stats.herokuapp.com/?user=nitish-awasthi)
 
