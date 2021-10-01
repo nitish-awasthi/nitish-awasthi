@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
+<p align="center"><br><i>The greatest mistake you can make in life is to be continually fearing you will make one.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
