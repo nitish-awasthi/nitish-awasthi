@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we did the things we are capable of, we would astound ourselves.</i><br><i>– Thomas Edison.</i><br></p>
+<a href="https://github.com/jhamadhav/quote-workflow" style="text-decoration:none;color:inherit;"><p align="center"><br><i>If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others.</i><br><i>– Anne Lindbergh.</i><br></p></a>
 <!-- QUOTE:END -->
 </br></br>
 
