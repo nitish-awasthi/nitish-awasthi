@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Age does not protect you from love. But love, to some extent, protects you from age.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
