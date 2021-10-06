@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>I am always doing that which I cannot do, in order that I may learn how to do it.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
