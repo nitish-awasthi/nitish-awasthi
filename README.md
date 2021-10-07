@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the most beautiful qualities of true friendship is to understand and to be understood.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.</i><br><i>– Henry Reed.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
