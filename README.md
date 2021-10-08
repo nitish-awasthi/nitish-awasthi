@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>When you learn, teach. When you get, give.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
