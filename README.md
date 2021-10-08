@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.</i><br><i>– Henry Reed.</i><br></p>
+<p align="center"><br><i>Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
