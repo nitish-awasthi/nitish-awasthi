@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each day provides its own gifts.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>The weak can never forgive. Forgiveness is the attribute of the strong.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
