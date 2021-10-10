@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Education is the most powerful weapon which you can use to change the world.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>Impossibilities are merely things which we have not yet learned.</i><br><i>– Charles W. Chesnutt.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
