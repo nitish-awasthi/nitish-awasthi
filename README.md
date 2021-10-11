@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>How many cares one loses when one decides not to be something but to be someone.</i><br><i>– Coco Chanel.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
