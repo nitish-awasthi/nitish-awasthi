@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you realize there is nothing lacking, the whole world belongs to you.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>We shall never know all the good that a simple smile can do.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
