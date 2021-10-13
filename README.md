@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.</i><br><i>– Kathleen Norris.</i><br></p>
+<p align="center"><br><i>Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
