@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think as a wise man but communicate in the language of the people.</i><br><i>– William Butler Yeats.</i><br></p>
+<p align="center"><br><i>Men are disturbed not by things, but by the view which they take of them.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
