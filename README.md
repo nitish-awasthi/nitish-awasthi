@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never worry about action, but only inaction.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
