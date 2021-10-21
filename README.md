@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truest greatness lies in being kind, the truest wisdom in a happy mind.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
+<p align="center"><br><i>If it is not right do not do it; if it is not true do not say it.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
