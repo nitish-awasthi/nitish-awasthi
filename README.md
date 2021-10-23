@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.</i><br><i>– Booker T. Washington.</i><br></p>
+<p align="center"><br><i>Never explain - your friends do not need it and your enemies will not believe you anyway.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
