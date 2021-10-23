@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most certain sign of wisdom is cheerfulness.</i><br><i>– Michel de Montaigne.</i><br></p>
+<p align="center"><br><i>Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.</i><br><i>– Arthur Rubinstein.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
