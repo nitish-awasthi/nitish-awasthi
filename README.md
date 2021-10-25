@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Knowledge is of no value unless you put it into practice.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
