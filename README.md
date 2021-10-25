@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>You teach best what you most need to learn.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.</i><br><i>– Chuck Norris.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
