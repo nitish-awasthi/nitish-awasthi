@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>What we achieve inwardly will change outer reality.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
