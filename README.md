@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.</i><br><i>– John Ruskin.</i><br></p>
+<p align="center"><br><i>Great ideas often receive violent opposition from mediocre minds.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
