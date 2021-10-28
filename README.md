@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Quality is not an act; it is a habit.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Knowledge without justice ought to be called cunning rather than wisdom.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
