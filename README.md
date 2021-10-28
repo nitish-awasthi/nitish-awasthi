@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all inclined to judge ourselves by our ideals; others, by their acts.</i><br><i>– Harold Nicolson.</i><br></p>
+<p align="center"><br><i>Having nothing, nothing can he lose.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
