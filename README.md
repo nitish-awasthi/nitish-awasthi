@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Today you are you! That is truer than true! There is no one alive who is you-er than you!</i><br><i>– Dr. Seuss.</i><br></p>
+<p align="center"><br><i>Imagination is the living power and prime agent of all human perception.</i><br><i>– Samuel Taylor Coleridge.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
