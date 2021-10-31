@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.</i><br><i>– A. A. Milne.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
