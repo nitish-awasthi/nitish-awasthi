@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.</i><br><i>– Naguib Mahfouz.</i><br></p>
+<p align="center"><br><i>You cannot travel the path until you have become the path itself.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
