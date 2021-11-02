@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Failure will never overtake me if my determination to succeed is strong enough.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
