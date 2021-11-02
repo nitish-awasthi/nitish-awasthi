@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot travel the path until you have become the path itself.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.</i><br><i>– Peter Abelard.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
