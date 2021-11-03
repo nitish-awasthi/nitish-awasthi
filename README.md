@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>He is able who thinks he is able.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>The difference between what we do and what we are capable of doing would suffice to solve most of the world’s problems.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
