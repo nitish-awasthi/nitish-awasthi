@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>No snowflake in an avalanche ever feels responsible.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
