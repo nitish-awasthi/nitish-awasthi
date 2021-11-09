@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God.</i><br><i>– Aeschylus.</i><br></p>
+<p align="center"><br><i>Until you make peace with who you are, you will never be content with what you have.</i><br><i>– Doris Mortman.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
