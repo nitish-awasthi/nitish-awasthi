@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.</i><br><i>– Morris West.</i><br></p>
+<p align="center"><br><i>Life is movement-we breathe, we eat, we walk, we move!</i><br><i>– John Pierrakos.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
