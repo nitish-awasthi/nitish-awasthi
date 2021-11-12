@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Three things cannot be long hidden: the sun, the moon, and the truth.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Nothing ever goes away until it has taught us what we need to know.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
