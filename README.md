@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing ever goes away until it has taught us what we need to know.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>I love my past. I love my present. I’m not ashamed of what I’ve had, and I’m not sad because I have it no longer.</i><br><i>– Colette.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
