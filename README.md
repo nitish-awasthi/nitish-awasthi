@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our dreams can come true, if we have the courage to pursue them.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>The only journey is the one within.</i><br><i>– Rainer Maria Rilke.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
