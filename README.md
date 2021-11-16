@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Beware of missing chances; otherwise it may be altogether too late someday.</i><br><i>– Franz Liszt.</i><br></p>
+<p align="center"><br><i>Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom.</i><br><i>– Rumi.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
