@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality leaves a lot to the imagination.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>But man is not made for defeat. A man can be destroyed but not defeated.</i><br><i>– Ernest Hemingway.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
