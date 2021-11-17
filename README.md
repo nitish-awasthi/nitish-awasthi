@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>I think somehow, we learn who we really are and then live with that decision.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
