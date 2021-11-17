@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.</i><br><i>– Ralph Marston.</i><br></p>
+<p align="center"><br><i>Reality leaves a lot to the imagination.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
