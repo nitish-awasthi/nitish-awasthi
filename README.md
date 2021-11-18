@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be slow to fall into friendship; but when thou art in, continue firm and constant.</i><br><i>– Isocrates.</i><br></p>
+<p align="center"><br><i>Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.</i><br><i>– Paavo Nurmi.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
