@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>There is nothing on this earth more to be prized than true friendship.</i><br><i>– Thomas Aquinas.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
