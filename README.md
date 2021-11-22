@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.</i><br><i>– Dale Turner.</i><br></p>
+<p align="center"><br><i>Almost everything comes from nothing.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
