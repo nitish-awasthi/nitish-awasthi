@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is always a sweet responsibility, never an opportunity.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>One fails forward toward success.</i><br><i>– Charles F. Kettering.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
