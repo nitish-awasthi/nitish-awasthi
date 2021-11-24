@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is round and the place which may seem like the end may also be the beginning.</i><br><i>– Ivy Baker Priest.</i><br></p>
+<p align="center"><br><i>In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
