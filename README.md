@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</i><br><i>– Henri Bergson.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
