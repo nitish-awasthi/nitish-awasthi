@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
