@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Sometimes the most important thing in a whole day is the rest we take between two deep breaths.</i><br><i>– Etty Hillesum.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
