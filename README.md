@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't settle for a relationship that won't let you be yourself.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Short words are best and the old words when short are best of all.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
