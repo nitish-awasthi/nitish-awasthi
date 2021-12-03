@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't wait. The time will never be just right.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Nothing but heaven itself is better than a friend who is really a friend.</i><br><i>– Plautus.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
