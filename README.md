@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>It's not what happens to you, but how you react to it that matters.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
