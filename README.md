@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows others is wise. He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
