@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.</i><br><i>– Samuel Johnson.</i><br></p>
+<p align="center"><br><i>Begin at once to live and count each separate day as a separate life.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
