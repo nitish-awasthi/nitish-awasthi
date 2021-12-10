@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Luck is what happens when preparation meets opportunity.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>If you think you can, you can. And if you think you can't, you're right.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
