@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Keep your eyes on the stars and your feet on the ground.</i><br><i>– Theodore Roosevelt.</i><br></p>
+<p align="center"><br><i>You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
