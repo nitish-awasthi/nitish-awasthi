@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yeah, we all shine on, like the moon, and the stars, and the sun.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>All I required to be happy was friendship and people I could admire.</i><br><i>– Christian Dior.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
