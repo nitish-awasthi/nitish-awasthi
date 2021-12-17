@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.</i><br><i>– Joseph Addison.</i><br></p>
+<p align="center"><br><i>I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world.</i><br><i>– Judy Collins.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
