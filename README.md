@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we could see the miracle of a single flower clearly, our whole life would change.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Lose an hour in the morning, and you will spend all day looking for it.</i><br><i>– Richard Whately.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
