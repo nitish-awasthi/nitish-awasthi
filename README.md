@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness does not come from having much, but from being attached to little.</i><br><i>– Cheng Yen.</i><br></p>
+<p align="center"><br><i>I don't want to achieve immortality through my work... I want to achieve it through not dying.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
