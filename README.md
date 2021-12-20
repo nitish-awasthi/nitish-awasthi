@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wisdom of the wise, and the experience of ages, may be preserved by quotation.</i><br><i>– Isaac D'Israeli.</i><br></p>
+<p align="center"><br><i>Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.</i><br><i>– Hannah Arendt.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
