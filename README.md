@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>How far that little candle throws its beams! So shines a good deed in a naughty world.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>One loyal friend is worth ten thousand relatives.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
