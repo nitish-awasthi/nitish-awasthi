@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The beginning of knowledge is the discovery of something we do not understand.</i><br><i>– Frank Herbert.</i><br></p>
+<p align="center"><br><i>You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
