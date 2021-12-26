@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us always meet each other with smile, for the smile is the beginning of love.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Motivation is the art of getting people to do what you want them to do because they want to do it.</i><br><i>– Dwight D. Eisenhower.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
