@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not what we have but what we enjoy constitutes our abundance.</i><br><i>– Jean Antoine Petit-Senn.</i><br></p>
+<p align="center"><br><i>I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
