@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth of the matter is that you always know the right thing to do. The hard part is doing it.</i><br><i>– Norman Schwarzkopf.</i><br></p>
+<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
