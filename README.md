@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Once a new technology rolls over you, if you’re not part of the steamroller, you’re part of the road.</i><br><i>– Stewart Brand.</i><br></p>
+<p align="center"><br><i>The superior man is modest in his speech but exceeds in his actions.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
