@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friendship founded on business is better than a business founded on friendship.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
