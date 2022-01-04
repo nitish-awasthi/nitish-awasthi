@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>A friendship founded on business is better than a business founded on friendship.</i><br><i>– John Locke.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
