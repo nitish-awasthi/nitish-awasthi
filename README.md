@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>To avoid criticism, do nothing, say nothing, be nothing.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
