@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every man takes the limits of his own field of vision for the limits of the world.</i><br><i>– Arthur Schopenhauer.</i><br></p>
+<p align="center"><br><i>A friendship founded on business is better than a business founded on friendship.</i><br><i>– John Locke.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
