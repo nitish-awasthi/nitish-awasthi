@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.</i><br><i>– Chuck Norris.</i><br></p>
+<p align="center"><br><i>It is better to travel well than to arrive.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
