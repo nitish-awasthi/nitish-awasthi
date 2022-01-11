@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Opportunity is missed by most because it is dressed in overalls and looks like work.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in.</i><br><i>– Katherine Mansfield.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
