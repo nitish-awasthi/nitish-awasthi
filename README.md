@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.</i><br><i>– Ravi Zacharias.</i><br></p>
+<p align="center"><br><i>Anything you really want, you can attain, if you really go after it.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
