@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things do not change; we change.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>What is not started today is never finished tomorrow.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
