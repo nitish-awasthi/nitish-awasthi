@@ -1,5 +1,9 @@
-### <h2>नमस्ते (Namaste)🙏🏻, I'm
-  </br>
+<!-- QUOTE:START -->
+<p align="center"><br><i>I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.</i><br><i>– Dalai Lama.</i><br></p>
+<!-- QUOTE:END -->
+
+### <h2>नमस्ते (Namaste)🙏,I'm</h2>
+  <br>
 
 <img align="left"  src="https://media.giphy.com/media/QvkZcmITuZ3RejQOtQ/giphy.gif" alt="Nitish Awasthi" width="600" height="150"/> &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp;
 <img align="" src="https://media.giphy.com/media/jRf5fsn8G6YaogAWxn/giphy.gif" width="200" height="200"/>
@@ -16,11 +20,8 @@
 - ⚡ Fun fact: **The first message sent over the internet was "LOG". "LOGIN" was the original intended message but the entire system crashed. This was done at MIT.**
 </br></br>
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
-</br></br>
-<!-- QUOTE:START -->
-<p align="center"><br><i>I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.</i><br><i>– Dalai Lama.</i><br></p>
-<!-- QUOTE:END -->
-</br></br>
+<br><br>
+
 
 ![Nitish's github activity graph](https://activity-graph.herokuapp.com/graph?username=nitish-awasthi&theme=xcode)
 
