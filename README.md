@@ -18,7 +18,7 @@
 <p align="center"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Nitish-Awasthi&margin-w=8&title=Joined2020,Commit,PullRequest,Followers,Issues,Repositories" /></a> </p>
 </br></br>
 <!-- QUOTE:START -->
-<p align="center"><br><i>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</i><br><i>– Walter Benjamin.</i><br></p>
+<p align="center"><br><i>I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 </br></br>
 
