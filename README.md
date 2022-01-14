@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Cunning... is but the low mimic of wisdom.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
