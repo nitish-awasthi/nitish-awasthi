@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>No matter how carefully you plan your goals they will never be more that pipe dreams unless you pursue them with gusto.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
