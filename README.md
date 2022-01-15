@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When in doubt, don't.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>We are all inclined to judge ourselves by our ideals; others, by their acts.</i><br><i>– Harold Nicolson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
