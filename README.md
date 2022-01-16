@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.</i><br><i>– Robert Fulghum.</i><br></p>
+<p align="center"><br><i>If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.</i><br><i>– Holly Near.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
