@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never, never, never give up.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>It is fatal to enter any war without the will to win it.</i><br><i>– Douglas MacArthur.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
