@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.</i><br><i>– Christopher Reeve.</i><br></p>
+<p align="center"><br><i>All our knowledge has its origins in our perceptions.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
