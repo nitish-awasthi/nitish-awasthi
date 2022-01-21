@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.</i><br><i>– Sai Baba.</i><br></p>
+<p align="center"><br><i>He who knows, does not speak. He who speaks, does not know.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
