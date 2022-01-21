@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows, does not speak. He who speaks, does not know.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>We must never forget that it is through our actions, words, and thoughts that we have a choice.</i><br><i>– Sogyal Rinpoche.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
