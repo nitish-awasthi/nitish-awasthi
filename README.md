@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In seed time learn, in harvest teach, in winter enjoy.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>Experience keeps a dear school, but fools will learn in no other.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
