@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sustaining true friendship is a lot more challenging than we give it credit for.</i><br><i>– Mariella Frostrup.</i><br></p>
+<p align="center"><br><i>Wherever you go, go with all your heart.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
