@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything you can imagine is real.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>Can you imagine what I would do if I could do all I can?</i><br><i>– Sun Tzu.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
