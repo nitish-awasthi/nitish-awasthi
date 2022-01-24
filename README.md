@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No alibi will save you from accepting the responsibility.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.</i><br><i>– Walter Benjamin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
