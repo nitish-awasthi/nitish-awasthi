@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest part of our happiness depends on our dispositions, not our circumstances.</i><br><i>– Martha Washington.</i><br></p>
+<p align="center"><br><i>The future belongs to those who believe in the beauty of their dreams.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
