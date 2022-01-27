@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.</i><br><i>– Niccolò Machiavelli.</i><br></p>
+<p align="center"><br><i>Divide each difficulty into as many parts as is feasible and necessary to resolve it.</i><br><i>– René Descartes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
