@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every problem has a gift for you in its hands.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>In life, all good things come hard, but wisdom is the hardest to come by.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
