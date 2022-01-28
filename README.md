@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality does not conform to the ideal but confirms it.</i><br><i>– Gustave Flaubert.</i><br></p>
+<p align="center"><br><i>Every problem has a gift for you in its hands.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
