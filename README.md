@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You know you're in love when you can't fall asleep because reality is finally better than your dreams.</i><br><i>– Dr. Seuss.</i><br></p>
+<p align="center"><br><i>Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions.</i><br><i>– Yoko Ono.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
