@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We make our own fortunes and we call them fate.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>You know you're in love when you can't fall asleep because reality is finally better than your dreams.</i><br><i>– Dr. Seuss.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
