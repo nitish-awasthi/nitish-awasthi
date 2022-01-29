@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What wisdom can you find that is greater than kindness?</i><br><i>– Jean-Jacques Rousseau.</i><br></p>
+<p align="center"><br><i>We make our own fortunes and we call them fate.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
