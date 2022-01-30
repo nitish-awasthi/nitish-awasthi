@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Listen to what you know instead of what you fear.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>The best way out is always through.</i><br><i>– Robert Frost.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
