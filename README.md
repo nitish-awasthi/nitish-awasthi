@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>Tragedy is a tool for the living to gain wisdom, not a guide by which to live.</i><br><i>– Robert F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
