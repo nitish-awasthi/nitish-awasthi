@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is one who knows you and loves you just the same.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
