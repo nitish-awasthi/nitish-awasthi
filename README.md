@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In the end we retain from our studies only that which we practically apply.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>It is with words as with sunbeams. The more they are condensed, the deeper they burn.</i><br><i>– Robert Southey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
