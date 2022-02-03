@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To keep your secret is wisdom; but to expect others to keep it is folly.</i><br><i>– Samuel Johnson.</i><br></p>
+<p align="center"><br><i>In the end we retain from our studies only that which we practically apply.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
