@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
