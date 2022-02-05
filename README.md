@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Living at risk is jumping off the cliff and building your wings on the way down.</i><br><i>– Ray Bradbury.</i><br></p>
+<p align="center"><br><i>To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
