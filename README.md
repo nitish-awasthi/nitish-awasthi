@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We can only be said to be alive in those moments when our hearts are conscious of our treasures.</i><br><i>– Thornton Wilder.</i><br></p>
+<p align="center"><br><i>If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
