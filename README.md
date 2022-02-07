@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.</i><br><i>– Samuel Johnson.</i><br></p>
+<p align="center"><br><i>The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
