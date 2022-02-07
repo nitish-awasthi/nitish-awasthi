@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The higher we are placed, the more humbly we should walk.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Walking with a friend in the dark is better than walking alone in the light.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
