@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friends show their love in times of trouble, not in happiness.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Our character is what we do when we think no one is looking.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
