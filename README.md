@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Before we acquire great power, we must acquire wisdom to use it well.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>He who talks more is sooner exhausted.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
