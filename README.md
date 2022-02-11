@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's important to know that words don't move mountains. Work, exacting work moves mountains.</i><br><i>– Danilo Dolci.</i><br></p>
+<p align="center"><br><i>Try not to become a man of success, but rather try to become a man of value.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
