@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>How far that little candle throws its beams! So shines a good deed in a naughty world.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>There is never enough time to do everything, but there is always enough time to do the most important thing.</i><br><i>– Brian Tracy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
