@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A long habit of not thinking a thing wrong gives it a superficial appearance of being right.</i><br><i>– Thomas Paine.</i><br></p>
+<p align="center"><br><i>The best way to pay for a lovely moment is to enjoy it.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
