@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot have what you do not want.</i><br><i>– John Acosta.</i><br></p>
+<p align="center"><br><i>Either I will find a way, or I will make one.</i><br><i>– Philip Sidney.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
