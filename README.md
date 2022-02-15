@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have an everyday religion that works for me. Love yourself first, and everything else falls into line.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>You cannot have what you do not want.</i><br><i>– John Acosta.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
