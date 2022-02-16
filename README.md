@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just because something doesn't do what you planned it to do doesn't mean it's useless.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Better to have loved and lost, than to have never loved at all.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
