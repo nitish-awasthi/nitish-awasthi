@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better to have loved and lost, than to have never loved at all.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.</i><br><i>– Carrie Snow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
