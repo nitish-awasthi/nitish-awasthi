@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must not allow ourselves to become like the system we oppose.</i><br><i>– Desmond Tutu.</i><br></p>
+<p align="center"><br><i>We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.</i><br><i>– Swami Vivekananda.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
