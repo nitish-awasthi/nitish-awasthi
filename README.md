@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology is a word that describes something that doesn't work yet.</i><br><i>– Douglas Adams.</i><br></p>
+<p align="center"><br><i>In the sky, there is no distinction of east and west; people create distinctions out of their own minds and then believe them to be true.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
