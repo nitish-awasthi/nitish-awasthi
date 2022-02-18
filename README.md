@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life isn't about finding yourself. Life is about creating yourself.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>Friends... they cherish one another's hopes. They are kind to one another's dreams.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
