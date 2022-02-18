@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friends... they cherish one another's hopes. They are kind to one another's dreams.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.</i><br><i>– Marcel Proust.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
