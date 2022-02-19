@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The truth you believe and cling to makes you unavailable to hear anything new.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>We gain the strength of the temptation we resist.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
