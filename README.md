@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good judgment comes from experience, and a lot of that comes from bad judgment.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>The foot feels the foot when it feels the ground.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
