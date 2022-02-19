@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most powerful is he who has himself in his own power.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Good judgment comes from experience, and a lot of that comes from bad judgment.</i><br><i>– Will Rogers.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
