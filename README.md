@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The foot feels the foot when it feels the ground.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Always bear in mind that your own resolution to succeed is more important than any one thing.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
