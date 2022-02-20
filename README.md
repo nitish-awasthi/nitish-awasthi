@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.</i><br><i>– Vernon Cooper.</i><br></p>
+<p align="center"><br><i>The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
