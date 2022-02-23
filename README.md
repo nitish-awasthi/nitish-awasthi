@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The ultimate promise of technology is to make us master of a world that we command by the push of a button.</i><br><i>– Volker Grassmuck.</i><br></p>
+<p align="center"><br><i>A thing long expected takes the form of the unexpected when at last it comes.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
