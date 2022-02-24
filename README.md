@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A thing long expected takes the form of the unexpected when at last it comes.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
