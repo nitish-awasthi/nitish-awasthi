@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can dream it, you can do it.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
