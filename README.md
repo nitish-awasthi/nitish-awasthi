@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.</i><br><i>– William C. Menninger.</i><br></p>
+<p align="center"><br><i>Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.</i><br><i>– Paul Theroux.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
