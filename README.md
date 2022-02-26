@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
