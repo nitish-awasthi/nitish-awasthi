@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The beginning is always today.</i><br><i>– Mary Wollstonecraft.</i><br></p>
+<p align="center"><br><i>Everything you are against weakens you. Everything you are for empowers you.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
