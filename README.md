@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Get busy living or get busy dying.</i><br><i>– Stephen King.</i><br></p>
+<p align="center"><br><i>As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
