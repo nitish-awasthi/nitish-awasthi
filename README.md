@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never accept ultimatums, conventional wisdom, or absolutes.</i><br><i>– Christopher Reeve.</i><br></p>
+<p align="center"><br><i>A person who never made a mistake never tried anything new.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
