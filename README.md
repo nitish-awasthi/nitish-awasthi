@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technological progress has merely provided us with more efficient means for going backwards.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>A true friend is the most precious of all possessions and the one we take the least thought about acquiring.</i><br><i>– François de La Rochefoucauld.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
