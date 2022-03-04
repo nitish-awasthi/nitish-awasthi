@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality is merely an illusion, albeit a very persistent one.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>It is through science that we prove, but through intuition that we discover.</i><br><i>– Henri Poincaré.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
