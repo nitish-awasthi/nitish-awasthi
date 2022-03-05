@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man is modest in his speech but exceeds in his actions.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Practice yourself, for heaven's sake in little things, and then proceed to greater.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
