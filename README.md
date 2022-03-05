@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are what we repeatedly do. Excellence, then, is not an act, but a habit.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Everything that irritates us about others can lead us to an understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
