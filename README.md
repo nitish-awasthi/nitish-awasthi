@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature is a mutable cloud which is always and never the same.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Start where you are. Use what you have. Do what you can.</i><br><i>– Arthur Ashe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
