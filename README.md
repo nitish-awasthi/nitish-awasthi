@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship, like the immortality of the soul, is too good to be believed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
