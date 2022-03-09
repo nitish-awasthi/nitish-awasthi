@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
