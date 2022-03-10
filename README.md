@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.</i><br><i>– Joseph Campbell.</i><br></p>
+<p align="center"><br><i>I cannot make my days longer, so I strive to make them better.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
