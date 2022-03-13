@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Speak when you are angry, and you will make the best speech you will ever regret.</i><br><i>– Ambrose Bierce.</i><br></p>
+<p align="center"><br><i>What we see depends mainly on what we look for.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
