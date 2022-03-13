@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Rare as is true love, true friendship is rarer.</i><br><i>– Jean de La Fontaine.</i><br></p>
+<p align="center"><br><i>Speak when you are angry, and you will make the best speech you will ever regret.</i><br><i>– Ambrose Bierce.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
