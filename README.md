@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>Knowledge is of no value unless you put it into practice.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
