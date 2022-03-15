@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The longer we dwell on our misfortunes, the greater is their power to harm us.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>The road of excess leads to the palace of wisdom.</i><br><i>– William Blake.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
