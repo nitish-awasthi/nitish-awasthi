@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can't feed a hundred people, then feed just one.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>When your desires are strong enough you will appear to possess superhuman powers to achieve.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
