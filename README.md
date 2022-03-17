@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Skill to do comes of doing.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Quality is not an act; it is a habit.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
