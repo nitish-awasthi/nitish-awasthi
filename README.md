@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One who is too insistent on his own views, finds few to agree with him.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Great ideas often receive violent opposition from mediocre minds.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
