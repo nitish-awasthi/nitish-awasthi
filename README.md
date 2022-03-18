@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great ideas often receive violent opposition from mediocre minds.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.</i><br><i>– George S. Patton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
