@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>God gave us the gift of life; it is up to us to give ourselves the gift of living well.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>Everything that irritates us about others can lead us to a better understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
