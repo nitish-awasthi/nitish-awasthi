@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you focus on results, you will never change. If you focus on change, you will get results.</i><br><i>– Jack Dixon.</i><br></p>
+<p align="center"><br><i>Memory is the mother of all wisdom.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
