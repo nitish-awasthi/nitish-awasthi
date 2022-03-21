@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Programs must be written for people to read, and only incidentally for machines to execute.</i><br><i>– Hal Abelson.</i><br></p>
+<p align="center"><br><i>Things turn out best for those who make the best of the way things turn out.</i><br><i>– Jack Buck.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
