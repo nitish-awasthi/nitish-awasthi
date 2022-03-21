@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Men are disturbed not by things, but by the view which they take of them.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Of all possessions a friend is the most precious.</i><br><i>– Herodotus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
