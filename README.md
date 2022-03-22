@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you love someone, set them free. If they come back, they're yours; if they don't, they never were.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.</i><br><i>– Plotinus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
