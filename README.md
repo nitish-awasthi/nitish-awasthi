@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You do not become good by trying to be good, but by finding the goodness that is already within you.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>You win the victory when you yield to friends.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
