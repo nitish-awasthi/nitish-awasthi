@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The way you see people is the way you treat them, and the way you treat them is what they become.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
