@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
+<p align="center"><br><i>You must welcome change as the rule but not as your ruler.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
