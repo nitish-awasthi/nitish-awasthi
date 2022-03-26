@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.</i><br><i>– Mariella Frostrup.</i><br></p>
+<p align="center"><br><i>Doing what you love is the cornerstone of having abundance in your life.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
