@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Doing what you love is the cornerstone of having abundance in your life.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>It is not so much our friends' help that helps us, as the confidence of their help.</i><br><i>– Epicurus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
