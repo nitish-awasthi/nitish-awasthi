@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Take time to deliberate, but when the time for action has arrived, stop thinking and go in.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it.</i><br><i>– Hugh Jackman.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
