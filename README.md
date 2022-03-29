@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Truth is powerful and it prevails.</i><br><i>– Sojourner Truth.</i><br></p>
+<p align="center"><br><i>Take time to deliberate, but when the time for action has arrived, stop thinking and go in.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
