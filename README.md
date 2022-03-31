@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.</i><br><i>– Immanuel Kant.</i><br></p>
+<p align="center"><br><i>If you want your life to be more rewarding, you have to change the way you think.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
