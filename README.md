@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.</i><br><i>– Arthur Ashe.</i><br></p>
+<p align="center"><br><i>Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
