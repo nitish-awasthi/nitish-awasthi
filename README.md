@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never idealize others. They will never live up to your expectations.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>The only person who never makes mistakes is the person who never does anything.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
