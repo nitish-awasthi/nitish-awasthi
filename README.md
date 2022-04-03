@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't ruin the present with the ruined past.</i><br><i>– Ellen Gilchrist.</i><br></p>
+<p align="center"><br><i>It is far better to be alone, than to be in bad company.</i><br><i>– George Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
