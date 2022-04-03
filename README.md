@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is far better to be alone, than to be in bad company.</i><br><i>– George Washington.</i><br></p>
+<p align="center"><br><i>Go for it now. The future is promised to no one.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
