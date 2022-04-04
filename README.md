@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Strength does not come from physical capacity. It comes from an indomitable will.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.</i><br><i>– Jawaharlal Nehru.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
