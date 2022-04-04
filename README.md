@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Go for it now. The future is promised to no one.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Blessed is the man who expects nothing, for he shall never be disappointed.</i><br><i>– Alexander Pope.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
