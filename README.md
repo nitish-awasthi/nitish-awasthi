@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.</i><br><i>– Carlos Castaneda.</i><br></p>
+<p align="center"><br><i>As an organizer I start from where the world is, as it is, not as I would like it to be.</i><br><i>– Saul Alinsky.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
