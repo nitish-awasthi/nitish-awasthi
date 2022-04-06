@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have never been hurt by anything I didn't say.</i><br><i>– Calvin Coolidge.</i><br></p>
+<p align="center"><br><i>How wonderful it is that nobody need wait a single moment before starting to improve the world.</i><br><i>– Anne Frank.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
