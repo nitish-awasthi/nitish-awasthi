@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>True knowledge exists in knowing that you know nothing.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
