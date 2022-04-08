@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It all depends on how we look at things, and not how they are in themselves.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>In life, all good things come hard, but wisdom is the hardest to come by.</i><br><i>– Lucille Ball.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
