@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest gift of life is friendship, and I have received it.</i><br><i>– Hubert Humphrey.</i><br></p>
+<p align="center"><br><i>The sum of wisdom is that time is never lost that is devoted to work.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
