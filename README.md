@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The sum of wisdom is that time is never lost that is devoted to work.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
