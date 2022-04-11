@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
