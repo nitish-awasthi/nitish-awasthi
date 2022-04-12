@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The more light you allow within you, the brighter the world you live in will be.</i><br><i>– Shakti Gawain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
