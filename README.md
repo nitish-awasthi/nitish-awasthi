@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The friendship that can cease has never been real.</i><br><i>– Jerome.</i><br></p>
+<p align="center"><br><i>Take things as they are. Punch when you have to punch. Kick when you have to kick.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
