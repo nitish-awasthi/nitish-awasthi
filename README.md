@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>If you're changing the world, you're working on important things. You're excited to get up in the morning.</i><br><i>– Larry Page.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
