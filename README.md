@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you wish to be a writer, write.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>In all things of nature there is something of the marvelous.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
