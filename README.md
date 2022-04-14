@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're changing the world, you're working on important things. You're excited to get up in the morning.</i><br><i>– Larry Page.</i><br></p>
+<p align="center"><br><i>If you wish to be a writer, write.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
