@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reality is merely an illusion, albeit a very persistent one.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
