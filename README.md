@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think like a man of action; act like a man of thought.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>The deepest craving of human nature is the need to be appreciated.</i><br><i>– William James.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
