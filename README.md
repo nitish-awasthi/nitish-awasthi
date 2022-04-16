@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is one of the blessings of old friends that you can afford to be stupid with them.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>It is with words as with sunbeams. The more they are condensed, the deeper they burn.</i><br><i>– Robert Southey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
