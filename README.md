@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the universe.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.</i><br><i>– Babatunde Olatunji.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
