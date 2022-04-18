@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.</i><br><i>– Vince Lombardi.</i><br></p>
+<p align="center"><br><i>A friend is someone who gives you total freedom to be yourself.</i><br><i>– Jim Morrison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
