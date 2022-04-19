@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anybody can make history. Only a great man can write it.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.</i><br><i>– Jane Addams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
