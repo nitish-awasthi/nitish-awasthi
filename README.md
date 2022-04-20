@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You got to be careful if you don't know where you're going, because you might not get there.</i><br><i>– Yogi Berra.</i><br></p>
+<p align="center"><br><i>Everyone thinks of changing the world, but no one thinks of changing himself.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
