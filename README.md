@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone thinks of changing the world, but no one thinks of changing himself.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>Be as you wish to seem.</i><br><i>– Socrates.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
