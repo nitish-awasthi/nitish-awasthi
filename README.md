@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must not allow ourselves to become like the system we oppose.</i><br><i>– Desmond Tutu.</i><br></p>
+<p align="center"><br><i>Knowledge is of no value unless you put it into practice.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
