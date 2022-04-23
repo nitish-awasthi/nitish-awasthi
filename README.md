@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
