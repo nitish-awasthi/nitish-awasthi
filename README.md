@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is of no value unless you put it into practice.</i><br><i>– Anton Chekhov.</i><br></p>
+<p align="center"><br><i>As you think, so shall you become.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
