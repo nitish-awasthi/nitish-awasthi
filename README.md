@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>As you think, so shall you become.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>I'll prepare and someday my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
