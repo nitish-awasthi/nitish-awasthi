@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Nine-tenths of wisdom is being wise in time.</i><br><i>– Theodore Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
