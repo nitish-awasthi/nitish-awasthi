@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Knowledge speaks, but wisdom listens.</i><br><i>– Jimi Hendrix.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
