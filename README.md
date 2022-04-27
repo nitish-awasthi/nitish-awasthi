@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?</i><br><i>– Rabbi Hillel.</i><br></p>
+<p align="center"><br><i>I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship.</i><br><i>– Harbhajan Singh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
