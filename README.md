@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The day of fortune is like a harvest day, we must be busy when the corn is ripe.</i><br><i>– Torquato Tasso.</i><br></p>
+<p align="center"><br><i>A man sees in the world what he carries in his heart.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
