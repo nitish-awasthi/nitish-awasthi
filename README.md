@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.</i><br><i>– Charles Eastman.</i><br></p>
+<p align="center"><br><i>Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.</i><br><i>– Billy Wilder.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
