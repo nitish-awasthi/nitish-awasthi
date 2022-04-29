@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.</i><br><i>– Billy Wilder.</i><br></p>
+<p align="center"><br><i>Freedom is what you do with what's been done to you.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
