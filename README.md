@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Error is discipline through which we advance.</i><br><i>– William Ellery Channing.</i><br></p>
+<p align="center"><br><i>Skill to do comes of doing.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
