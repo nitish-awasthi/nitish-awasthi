@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Skill to do comes of doing.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>A wise man will make more opportunities than he finds.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
