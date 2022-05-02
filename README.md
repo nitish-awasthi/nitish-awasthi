@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you are content to be simply yourself and don't compare or compete, everybody will respect you.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Love all, trust a few, do wrong to none.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
