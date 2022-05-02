@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A wise man will make more opportunities than he finds.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
