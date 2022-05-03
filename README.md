@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fear grows in darkness; if you think there's a bogeyman around, turn on the light.</i><br><i>– Dorothy Thompson.</i><br></p>
+<p align="center"><br><i>It is impossible for a man to learn what he thinks he already knows.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
