@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.</i><br><i>– Anne Frank.</i><br></p>
+<p align="center"><br><i>Interestingly, according to modern astronomers, space is finite. This is a very comforting thought-- particularly for people who can never remember where they have left things.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
