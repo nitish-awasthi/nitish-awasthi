@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Interestingly, according to modern astronomers, space is finite. This is a very comforting thought-- particularly for people who can never remember where they have left things.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>One of the advantages of being disorderly is that one is constantly making exciting discoveries.</i><br><i>– A. A. Milne.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
