@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Very little is needed to make a happy life; it is all within yourself, in your way of thinking.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>One's friends are that part of the human race with which one can be human.</i><br><i>– George Santayana.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
