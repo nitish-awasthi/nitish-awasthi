@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is deep as Eternity; Speech is shallow as Time.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>Discipline is the bridge between goals and accomplishment.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
