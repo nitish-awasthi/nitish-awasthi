@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>As you think, so shall you become.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Silence is deep as Eternity; Speech is shallow as Time.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
