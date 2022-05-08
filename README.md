@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.</i><br><i>– Margaret Mead.</i><br></p>
+<p align="center"><br><i>I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
