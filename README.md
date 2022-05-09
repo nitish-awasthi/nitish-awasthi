@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is one who knows you and loves you just the same.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Bad times have a scientific value. These are occasions a good learner would not miss.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
