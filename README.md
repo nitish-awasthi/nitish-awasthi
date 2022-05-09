@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good timber does not grow with ease; the stronger the wind, the stronger the trees.</i><br><i>– J. Willard Marriott.</i><br></p>
+<p align="center"><br><i>A friend is one who knows you and loves you just the same.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
