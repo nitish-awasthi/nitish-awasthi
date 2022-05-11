@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
