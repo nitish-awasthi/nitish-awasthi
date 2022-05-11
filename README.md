@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity.</i><br><i>– William C. Menninger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
