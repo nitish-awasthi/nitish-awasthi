@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I allow my intuition to lead my path.</i><br><i>– Manuel Puig.</i><br></p>
+<p align="center"><br><i>Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
