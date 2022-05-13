@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's not what happens to you, but how you react to it that matters.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Always be smarter than the people who hire you.</i><br><i>– Lena Horne.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
