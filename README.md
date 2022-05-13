@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be smarter than the people who hire you.</i><br><i>– Lena Horne.</i><br></p>
+<p align="center"><br><i>More often than not, anger is actually an indication of weakness rather than of strength.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
