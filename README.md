@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never idealize others. They will never live up to your expectations.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
