@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He that respects himself is safe from others; he wears a coat of mail that none can pierce.</i><br><i>– Henry Wadsworth Longfellow.</i><br></p>
+<p align="center"><br><i>It is fatal to enter any war without the will to win it.</i><br><i>– Douglas MacArthur.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
