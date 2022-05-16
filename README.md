@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
+<p align="center"><br><i>The truest greatness lies in being kind, the truest wisdom in a happy mind.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
