@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you know yourself, the more you forgive yourself.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Pick battles big enough to matter, small enough to win.</i><br><i>– Jonathan Kozol.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
