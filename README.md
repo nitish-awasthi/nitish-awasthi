@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is certainly the finest balm for the pangs of disappointed love.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>The way we communicate with others and with ourselves ultimately determines the quality of our lives.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
