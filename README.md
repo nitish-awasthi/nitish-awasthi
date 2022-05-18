@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most technologically efficient machine that man has ever invented is the book.</i><br><i>– Northrop Frye.</i><br></p>
+<p align="center"><br><i>Friendship is certainly the finest balm for the pangs of disappointed love.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
