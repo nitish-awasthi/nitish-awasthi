@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>Our intention creates our reality.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
