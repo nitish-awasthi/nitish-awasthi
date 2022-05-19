@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who knows, does not speak. He who speaks, does not know.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Much wisdom often goes with fewer words.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
