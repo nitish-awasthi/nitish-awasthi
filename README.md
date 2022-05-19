@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our intention creates our reality.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
