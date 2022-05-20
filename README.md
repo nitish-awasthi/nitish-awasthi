@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Quality is never an accident; it is always the result of intelligent effort.</i><br><i>– John Ruskin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
