@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>An invasion of armies can be resisted, but not an idea whose time has come.</i><br><i>– Victor Hugo.</i><br></p>
+<p align="center"><br><i>The only way to have a friend is to be one.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
