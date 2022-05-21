@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>So long as a person is capable of self-renewal they are a living being.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
+<p align="center"><br><i>It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
