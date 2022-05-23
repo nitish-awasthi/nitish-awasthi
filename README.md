@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always seek out the seed of triumph in every adversity.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>The foot feels the foot when it feels the ground.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
