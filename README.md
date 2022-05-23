@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A little knowledge that acts is worth infinitely more than much knowledge that is idle.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Many of life's failures are people who did not realize how close they were to success when they gave up.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
