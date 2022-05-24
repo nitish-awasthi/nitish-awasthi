@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>Life is like riding a bicycle. To keep your balance you must keep moving.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
