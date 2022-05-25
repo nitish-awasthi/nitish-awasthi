@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is like riding a bicycle. To keep your balance you must keep moving.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>The wisest men follow their own direction.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
