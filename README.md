@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be great is to be misunderstood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.</i><br><i>– G. K. Chesterton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
