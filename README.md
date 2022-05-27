@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have an everyday religion that works for me. Love yourself first, and everything else falls into line.</i><br><i>– Lucille Ball.</i><br></p>
+<p align="center"><br><i>The greatest good you can do for another is not just share your riches but reveal to them their own.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
