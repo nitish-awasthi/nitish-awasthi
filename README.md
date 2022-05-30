@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is impossible to experience one's death objectively and still carry a tune.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Be less curious about people and more curious about ideas.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
