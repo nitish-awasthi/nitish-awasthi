@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The road of excess leads to the palace of wisdom.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>No party has a monopoly on wisdom. No democracy works without compromise. But when Governor Romney and his allies in Congress tell us we can somehow lower our deficit by spending trillions more on new tax breaks for the wealthy - well, you do the math. I refuse to go along with that. And as long as I'm President, I never will.</i><br><i>– Barack Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
