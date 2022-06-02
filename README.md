@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The past has no power to stop you from being present now. Only your grievance about the past can do that.</i><br><i>– Eckhart Tolle.</i><br></p>
+<p align="center"><br><i>I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
