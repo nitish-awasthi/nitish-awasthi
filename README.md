@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The supreme art of war is to subdue the enemy without fighting.</i><br><i>– Sun Tzu.</i><br></p>
+<p align="center"><br><i>Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
