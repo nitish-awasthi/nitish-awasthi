@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every friendship is different because everyone's personality is different.</i><br><i>– Nargis Fakhri.</i><br></p>
+<p align="center"><br><i>Work out your own salvation. Do not depend on others.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
