@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>With every experience, you alone are painting your own canvas, thought by thought, choice by choice.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>To keep your secret is wisdom; but to expect others to keep it is folly.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
