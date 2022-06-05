@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where there is love there is life.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>Do one thing every day that scares you.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
