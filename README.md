@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To keep your secret is wisdom; but to expect others to keep it is folly.</i><br><i>– Samuel Johnson.</i><br></p>
+<p align="center"><br><i>Where there is love there is life.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
