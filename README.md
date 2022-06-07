@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
+<p align="center"><br><i>Think how hard physics would be if particles could think.</i><br><i>– Murray Gell-Mann.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
