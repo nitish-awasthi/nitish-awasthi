@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think how hard physics would be if particles could think.</i><br><i>– Murray Gell-Mann.</i><br></p>
+<p align="center"><br><i>It always seems impossible until it's done.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
