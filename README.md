@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It always seems impossible until it's done.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>There surely is in human nature an inherent propensity to extract all the good out of all the evil.</i><br><i>– Benjamin Haydon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
