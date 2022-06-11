@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom has its root in goodness, not goodness its root in wisdom.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Gratitude is the fairest blossom which springs from the soul.</i><br><i>– Henry K. Beecher.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
