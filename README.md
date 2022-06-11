@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If a man does his best, what else is there?</i><br><i>– George S. Patton.</i><br></p>
+<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
