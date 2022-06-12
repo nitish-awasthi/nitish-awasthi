@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always keep an open mind and a compassionate heart.</i><br><i>– Phil Jackson.</i><br></p>
+<p align="center"><br><i>The truth of the matter is that you always know the right thing to do. The hard part is doing it.</i><br><i>– Norman Schwarzkopf.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
