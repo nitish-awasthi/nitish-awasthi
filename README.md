@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you can't explain it simply, you don't understand it well enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Always keep an open mind and a compassionate heart.</i><br><i>– Phil Jackson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
