@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Leave no stone unturned.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>Business, you know, may bring you money, but friendship hardly ever does.</i><br><i>– Jane Austen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
