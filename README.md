@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Action is the foundational key to all success.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.</i><br><i>– Doug Larson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
