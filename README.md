@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>People grow through experience if they meet life honestly and courageously. This is how character is built.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>If you would take, you must first give, this is the beginning of intelligence.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
