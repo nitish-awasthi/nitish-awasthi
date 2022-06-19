@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The smallest deed is better than the greatest intention.</i><br><i>– John Burroughs.</i><br></p>
+<p align="center"><br><i>Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
