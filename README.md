@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best way to pay for a lovely moment is to enjoy it.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
