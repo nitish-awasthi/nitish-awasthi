@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When fate hands us a lemon, let's try to make lemonade.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>It is the quality of our work which will please God, not the quantity.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
