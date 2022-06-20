@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.</i><br><i>– Edward de Bono.</i><br></p>
+<p align="center"><br><i>When fate hands us a lemon, let's try to make lemonade.</i><br><i>– Dale Carnegie.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
