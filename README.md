@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The universe is full of magical things, patiently waiting for our wits to grow sharper.</i><br><i>– Eden Phillpotts.</i><br></p>
+<p align="center"><br><i>By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
