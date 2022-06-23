@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anticipate the difficult by managing the easy.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
