@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
