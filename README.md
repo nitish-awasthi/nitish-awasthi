@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>The person born with a talent they are meant to use will find their greatest happiness in using it.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
