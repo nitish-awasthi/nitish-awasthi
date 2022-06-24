@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Go to your bosom: Knock there and ask your heart what it doth know.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Technological progress has merely provided us with more efficient means for going backwards.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
