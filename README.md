@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.</i><br><i>– Charles Lindbergh.</i><br></p>
+<p align="center"><br><i>Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
