@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Learning never exhausts the mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
