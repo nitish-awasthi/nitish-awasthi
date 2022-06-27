@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is impossible to love and to be wise.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>Remember that sometimes not getting what you want is a wonderful stroke of luck.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
