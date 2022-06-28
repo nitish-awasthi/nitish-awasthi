@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The possibilities are numerous once we decide to act and not react.</i><br><i>– George Bernard Shaw.</i><br></p>
+<p align="center"><br><i>Sincerity is the way of Heaven. The attainment of sincerity is the way of men.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
