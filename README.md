@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
