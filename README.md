@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along.</i><br><i>– Lisa Alther.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
