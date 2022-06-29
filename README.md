@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along.</i><br><i>– Lisa Alther.</i><br></p>
+<p align="center"><br><i>Anybody can make history. Only a great man can write it.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
