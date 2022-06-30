@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.</i><br><i>– Archimedes.</i><br></p>
+<p align="center"><br><i>Who sows virtue reaps honor.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
