@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gratitude is the fairest blossom which springs from the soul.</i><br><i>– Henry K. Beecher.</i><br></p>
+<p align="center"><br><i>Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
