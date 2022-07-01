@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Friendship is a very taxing and arduous form of leisure activity.</i><br><i>– Mortimer J. Adler.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
