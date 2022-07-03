@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To accomplish great things, we must not only act, but also dream; not only plan, but also believe.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>Blessed is the man who expects nothing, for he shall never be disappointed.</i><br><i>– Alexander Pope.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
