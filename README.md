@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.</i><br><i>– Mignon McLaughlin.</i><br></p>
+<p align="center"><br><i>When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
