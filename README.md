@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most technologically efficient machine that man has ever invented is the book.</i><br><i>– Northrop Frye.</i><br></p>
+<p align="center"><br><i>Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
