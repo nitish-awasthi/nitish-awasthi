@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I owe my solitude to other people.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Hockey is a sport for white men. Basketball is a sport for black men. Golf is a sport for white men dressed like black pimps.</i><br><i>– Tiger Woods.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
