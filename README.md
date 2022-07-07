@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>He who controls others may be powerful, but he who has mastered himself is mightier still.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
