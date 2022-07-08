@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We can only be said to be alive in those moments when our hearts are conscious of our treasures.</i><br><i>– Thornton Wilder.</i><br></p>
+<p align="center"><br><i>True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.</i><br><i>– George Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
