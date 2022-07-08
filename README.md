@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination is not a talent of some men but is the health of every man.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>To follow, without halt, one aim: There is the secret of success.</i><br><i>– Anna Pavlova.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
