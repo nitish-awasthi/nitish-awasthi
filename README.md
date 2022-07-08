@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.</i><br><i>– George Washington.</i><br></p>
+<p align="center"><br><i>Imagination is not a talent of some men but is the health of every man.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
