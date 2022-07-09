@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be mindful of the kindness and not the faults of others.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Many men go fishing all of their lives without knowing that it is not fish they are after.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
