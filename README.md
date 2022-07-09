@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To follow, without halt, one aim: There is the secret of success.</i><br><i>– Anna Pavlova.</i><br></p>
+<p align="center"><br><i>He who wishes to secure the good of others, has already secured his own.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
