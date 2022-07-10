@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are no strangers here; Only friends you haven't yet met.</i><br><i>– William Butler Yeats.</i><br></p>
+<p align="center"><br><i>Decision is a risk rooted in the courage of being free.</i><br><i>– Paul Tillich.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
