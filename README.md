@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>There are no strangers here; Only friends you haven't yet met.</i><br><i>– William Butler Yeats.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
