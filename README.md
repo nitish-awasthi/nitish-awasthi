@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Many men go fishing all of their lives without knowing that it is not fish they are after.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
