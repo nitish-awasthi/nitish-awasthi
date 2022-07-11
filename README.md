@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is like riding a bicycle. To keep your balance you must keep moving.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
