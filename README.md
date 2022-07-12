@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
