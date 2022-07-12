@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's so simple to be wise. Just think of something stupid to say and then don't say it.</i><br><i>– Sam Levenson.</i><br></p>
+<p align="center"><br><i>The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
