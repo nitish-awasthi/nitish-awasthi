@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>Good actions give strength to ourselves and inspire good actions in others.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
