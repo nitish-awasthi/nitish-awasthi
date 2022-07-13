@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion.</i><br><i>– Dwight D. Eisenhower.</i><br></p>
+<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
