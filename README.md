@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be your own hero, it's cheaper than a movie ticket.</i><br><i>– Doug Horton.</i><br></p>
+<p align="center"><br><i>Swim upstream. Go the other way. Ignore the conventional wisdom.</i><br><i>– Sam Walton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
