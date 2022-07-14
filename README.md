@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Swim upstream. Go the other way. Ignore the conventional wisdom.</i><br><i>– Sam Walton.</i><br></p>
+<p align="center"><br><i>Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
