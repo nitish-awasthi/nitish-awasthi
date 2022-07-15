@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Start where you are. Use what you have. Do what you can.</i><br><i>– Arthur Ashe.</i><br></p>
+<p align="center"><br><i>Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.</i><br><i>– Archimedes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
