@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.</i><br><i>– Archimedes.</i><br></p>
+<p align="center"><br><i>Reviewing what you have learned and learning anew, you are fit to be a teacher.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
