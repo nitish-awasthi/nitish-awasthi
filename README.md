@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>People grow through experience if they meet life honestly and courageously. This is how character is built.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Only those who dare to fail greatly can ever achieve greatly.</i><br><i>– Robert F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
