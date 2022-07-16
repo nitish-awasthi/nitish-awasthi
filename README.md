@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is not one big cosmic meaning for all, there is only the meaning we each give to our life.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>People grow through experience if they meet life honestly and courageously. This is how character is built.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
