@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.</i><br><i>– John Steinbeck.</i><br></p>
+<p align="center"><br><i>Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.</i><br><i>– Brian O'Driscoll.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
