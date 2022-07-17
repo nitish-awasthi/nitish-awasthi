@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Cunning... is but the low mimic of wisdom.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Minds are like parachutes. They only function when open.</i><br><i>– Thomas Dewar.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
