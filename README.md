@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Minds are like parachutes. They only function when open.</i><br><i>– Thomas Dewar.</i><br></p>
+<p align="center"><br><i>I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.</i><br><i>– Elizabeth Montagu.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
