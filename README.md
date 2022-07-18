@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.</i><br><i>– Richard Burton.</i><br></p>
+<p align="center"><br><i>The gambling known as business looks with austere disfavor upon the business known as gambling.</i><br><i>– Ambrose Bierce.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
