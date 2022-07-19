@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.</i><br><i>– John Steinbeck.</i><br></p>
+<p align="center"><br><i>By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
