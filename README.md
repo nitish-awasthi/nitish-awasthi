@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>Friendship may, and often does, grow into love, but love never subsides into friendship.</i><br><i>– Lord Byron.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
