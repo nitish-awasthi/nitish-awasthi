@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship may, and often does, grow into love, but love never subsides into friendship.</i><br><i>– Lord Byron.</i><br></p>
+<p align="center"><br><i>Wishing to be friends is quick work, but friendship is a slow ripening fruit.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
