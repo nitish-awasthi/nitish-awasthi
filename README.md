@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you know yourself, the more you forgive yourself.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
