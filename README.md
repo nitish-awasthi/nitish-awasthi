@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>It is through science that we prove, but through intuition that we discover.</i><br><i>– Henri Poincaré.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
