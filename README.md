@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is the attempt to form a friendship inspired by beauty.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.</i><br><i>– Vince Lombardi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
