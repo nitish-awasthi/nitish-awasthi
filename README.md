@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all faced with a series of great opportunities brilliantly disguised as impossible situations.</i><br><i>– Chuck Swindoll.</i><br></p>
+<p align="center"><br><i>We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.</i><br><i>– Barbara De Angelis.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
