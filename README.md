@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>The secret of business is to know something that nobody else knows.</i><br><i>– Aristotle Onassis.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
