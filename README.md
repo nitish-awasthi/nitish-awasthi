@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology is a word that describes something that doesn't work yet.</i><br><i>– Douglas Adams.</i><br></p>
+<p align="center"><br><i>We have committed the Golden Rule to memory; let us now commit it to life.</i><br><i>– Edwin Markham.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
