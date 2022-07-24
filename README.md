@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We have committed the Golden Rule to memory; let us now commit it to life.</i><br><i>– Edwin Markham.</i><br></p>
+<p align="center"><br><i>Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong.</i><br><i>– Richard Needham.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
