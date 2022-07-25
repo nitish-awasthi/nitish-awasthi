@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To improve is to change; to be perfect is to change often.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Better than a thousand hollow words, is one word that brings peace.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
