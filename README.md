@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I gave my life to become the person I am right now. Was it worth it?</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>To improve is to change; to be perfect is to change often.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
