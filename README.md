@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Just as a candle cannot burn without fire, men cannot live without a spiritual life.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Anything you really want, you can attain, if you really go after it.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
