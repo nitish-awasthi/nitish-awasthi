@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The minute you settle for less than you deserve, you get even less than you settled for.</i><br><i>– Maureen Dowd.</i><br></p>
+<p align="center"><br><i>Better to have loved and lost, than to have never loved at all.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
