@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Work out your own salvation. Do not depend on others.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>We must learn our limits. We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
