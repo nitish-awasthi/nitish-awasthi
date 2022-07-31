@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is about timing.</i><br><i>– Carl Lewis.</i><br></p>
+<p align="center"><br><i>We may encounter many defeats, but we must not be defeated.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
