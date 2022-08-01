@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Only when we are no longer afraid do we begin to live.</i><br><i>– Dorothy Thompson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
