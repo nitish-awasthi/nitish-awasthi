@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Half the lies they tell about me aren't true.</i><br><i>– Yogi Berra.</i><br></p>
+<p align="center"><br><i>Hope arouses, as nothing else can arouse, a passion for the possible.</i><br><i>– William Sloane Coffin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
