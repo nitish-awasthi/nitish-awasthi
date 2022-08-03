@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Don't worry about people stealing your ideas. If your ideas are any good, you'll have to ram them down people's throats.</i><br><i>– Howard H. Aiken.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
