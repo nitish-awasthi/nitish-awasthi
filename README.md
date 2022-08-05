@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things do not happen. Things are made to happen.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
