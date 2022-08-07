@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster.</i><br><i>– Avery Brooks.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
