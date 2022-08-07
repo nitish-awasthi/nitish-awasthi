@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you learn, teach. When you get, give.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>The pain passes, but the beauty remains.</i><br><i>– Pierre-Auguste Renoir.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
