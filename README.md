@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>When you learn, teach. When you get, give.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
