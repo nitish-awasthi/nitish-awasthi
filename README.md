@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pain passes, but the beauty remains.</i><br><i>– Pierre-Auguste Renoir.</i><br></p>
+<p align="center"><br><i>Treat people as if they were what they ought to be, and you help them to become what they are capable of being.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
