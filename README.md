@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.</i><br><i>– William Ellery Channing.</i><br></p>
+<p align="center"><br><i>Don't judge each day by the harvest you reap but by the seeds that you plant.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
