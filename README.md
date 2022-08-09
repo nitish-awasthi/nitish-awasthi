@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You don't choose your family. They are God's gift to you, as you are to them.</i><br><i>– Desmond Tutu.</i><br></p>
+<p align="center"><br><i>True friendship ought never to conceal what it thinks.</i><br><i>– Jerome.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
