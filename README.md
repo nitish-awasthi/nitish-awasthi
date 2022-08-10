@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All difficult things have their origin in that which is easy, and great things in that which is small.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
