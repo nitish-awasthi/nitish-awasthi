@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know how to listen, and you will profit even from those who talk badly.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>All difficult things have their origin in that which is easy, and great things in that which is small.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
