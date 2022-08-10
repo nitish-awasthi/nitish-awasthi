@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>There is only one boss. The customer. And he can fire everybody in the company from the chairman on down, simply by spending his money somewhere else.</i><br><i>– Sam Walton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
