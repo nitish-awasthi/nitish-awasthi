@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.</i><br><i>– Colin Powell.</i><br></p>
+<p align="center"><br><i>There is nothing in a caterpillar that tells you it's going to be a butterfly.</i><br><i>– Buckminster Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
