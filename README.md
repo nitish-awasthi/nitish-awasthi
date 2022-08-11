@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing in a caterpillar that tells you it's going to be a butterfly.</i><br><i>– Buckminster Fuller.</i><br></p>
+<p align="center"><br><i>Adversity causes some men to break, others to break records.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
