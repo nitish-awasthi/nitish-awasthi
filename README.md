@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never mistake activity for achievement.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>More often than not, anger is actually an indication of weakness rather than of strength.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
