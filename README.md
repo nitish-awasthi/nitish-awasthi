@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is a friendship set to music.</i><br><i>– Joseph Campbell.</i><br></p>
+<p align="center"><br><i>It is on our failures that we base a new and different and better success.</i><br><i>– Havelock Ellis.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
