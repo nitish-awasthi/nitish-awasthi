@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is on our failures that we base a new and different and better success.</i><br><i>– Havelock Ellis.</i><br></p>
+<p align="center"><br><i>With every experience, you alone are painting your own canvas, thought by thought, choice by choice.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
