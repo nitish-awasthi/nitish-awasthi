@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I begin with an idea and then it becomes something else.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>Love is a friendship set to music.</i><br><i>– Joseph Campbell.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
