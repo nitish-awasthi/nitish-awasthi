@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If a man watches three football games in a row, he should be declared legally dead.</i><br><i>– Erma Bombeck.</i><br></p>
+<p align="center"><br><i>Numberless are the worlds wonders, but none more wonderful than man.</i><br><i>– Sophocles.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
