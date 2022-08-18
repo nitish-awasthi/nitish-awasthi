@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>O, what a tangled web we weave when first we practice to deceive!</i><br><i>– Walter Scott.</i><br></p>
+<p align="center"><br><i>Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
