@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things do not happen. Things are made to happen.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Finding good players is easy. Getting them to play as a team is another story.</i><br><i>– Casey Stengel.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
