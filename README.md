@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We must learn our limits. We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Stay committed to your decisions, but stay flexible in your approach.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
