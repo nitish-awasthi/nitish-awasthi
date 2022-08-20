@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never pretend to a love which you do not actually feel, for love is not ours to command.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>It is the province of knowledge to speak, and it is the privilege of wisdom to listen.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
