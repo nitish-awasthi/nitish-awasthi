@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.</i><br><i>– Chuck Norris.</i><br></p>
+<p align="center"><br><i>Life is a learning experience, only if you learn.</i><br><i>– Yogi Berra.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
