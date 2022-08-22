@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The function of wisdom is to discriminate between good and evil.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>If I were two-faced, would I be wearing this one?</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
