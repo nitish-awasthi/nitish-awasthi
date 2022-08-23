@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.</i><br><i>– Billie Jean King.</i><br></p>
+<p align="center"><br><i>Sometimes it is better to lose and do the right thing than to win and do the wrong thing.</i><br><i>– Tony Blair.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
