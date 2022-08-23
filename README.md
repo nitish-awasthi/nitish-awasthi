@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.</i><br><i>– Robert Fulghum.</i><br></p>
+<p align="center"><br><i>Tennis is a perfect combination of violent action taking place in an atmosphere of total tranquillity.</i><br><i>– Billie Jean King.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
