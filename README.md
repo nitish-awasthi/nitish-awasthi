@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To dare is to lose ones footing momentarily. To not dare is to lose oneself.</i><br><i>– Søren Kierkegaard.</i><br></p>
+<p align="center"><br><i>Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.</i><br><i>– Theodore Isaac Rubin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
