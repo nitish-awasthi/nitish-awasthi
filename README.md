@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A house divided against itself cannot stand.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
