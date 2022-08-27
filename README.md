@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your body is precious. It is our vehicle for awakening. Treat it with care.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Communications tools don't get socially interesting until they get technologically boring.</i><br><i>– Clay Shirky.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
