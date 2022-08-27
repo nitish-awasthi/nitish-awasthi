@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Communications tools don't get socially interesting until they get technologically boring.</i><br><i>– Clay Shirky.</i><br></p>
+<p align="center"><br><i>The universe is made of stories, not atoms.</i><br><i>– Muriel Rukeyser.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
