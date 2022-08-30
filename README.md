@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more man meditates upon good thoughts, the better will be his world and the world at large.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.</i><br><i>– Albert Camus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
