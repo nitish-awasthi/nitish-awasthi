@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.</i><br><i>– Margaret Chase Smith.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
