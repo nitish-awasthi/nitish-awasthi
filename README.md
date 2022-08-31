@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Compassion and happiness are not a sign of weakness but a sign of strength.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Continuous effort - not strength or intelligence - is the key to unlocking our potential.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
