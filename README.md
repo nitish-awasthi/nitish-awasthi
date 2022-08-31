@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Continuous effort - not strength or intelligence - is the key to unlocking our potential.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>There is nothing in a caterpillar that tells you it's going to be a butterfly.</i><br><i>– Buckminster Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
