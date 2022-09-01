@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To want to be what one can be is purpose in life.</i><br><i>– Cynthia Ozick.</i><br></p>
+<p align="center"><br><i>When a thing is done, it's done. Don't look back. Look forward to your next objective.</i><br><i>– George Marshall.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
