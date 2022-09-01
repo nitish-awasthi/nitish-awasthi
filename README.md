@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your talent is God's gift to you. What you do with it is your gift back to God.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>To want to be what one can be is purpose in life.</i><br><i>– Cynthia Ozick.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
