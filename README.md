@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When a thing is done, it's done. Don't look back. Look forward to your next objective.</i><br><i>– George Marshall.</i><br></p>
+<p align="center"><br><i>Nothing is at last sacred but the integrity of your own mind.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
