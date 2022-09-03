@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.</i><br><i>– Marie Curie.</i><br></p>
+<p align="center"><br><i>He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
