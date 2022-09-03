@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never mistake activity for achievement.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>The philosophy of the school room in one generation will be the philosophy of government in the next.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
