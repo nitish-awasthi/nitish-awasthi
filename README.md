@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</i><br><i>– Michael Jordan.</i><br></p>
+<p align="center"><br><i>We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
