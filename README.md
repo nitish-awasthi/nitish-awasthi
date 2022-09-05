@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We choose our joys and sorrows long before we experience them.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Of all possessions a friend is the most precious.</i><br><i>– Herodotus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
