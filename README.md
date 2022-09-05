@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Of all possessions a friend is the most precious.</i><br><i>– Herodotus.</i><br></p>
+<p align="center"><br><i>It is the province of knowledge to speak, and it is the privilege of wisdom to listen.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
