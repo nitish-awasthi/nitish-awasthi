@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>More often than not, anger is actually an indication of weakness rather than of strength.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Difficulties increase the nearer we get to the goal.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
