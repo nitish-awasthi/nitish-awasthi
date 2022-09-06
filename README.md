@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The happiness of a man in this life does not consist in the absence but in the mastery of his passions.</i><br><i>– Alfred Tennyson.</i><br></p>
+<p align="center"><br><i>Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.</i><br><i>– Carrie Snow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
