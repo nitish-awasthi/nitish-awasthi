@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties increase the nearer we get to the goal.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>The happiness of a man in this life does not consist in the absence but in the mastery of his passions.</i><br><i>– Alfred Tennyson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
