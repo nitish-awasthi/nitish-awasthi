@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>If you change the way you look at things, the things you look at change.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
