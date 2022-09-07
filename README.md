@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Error is discipline through which we advance.</i><br><i>– William Ellery Channing.</i><br></p>
+<p align="center"><br><i>Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
