@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you change the way you look at things, the things you look at change.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Be like the flower, turn your face to the sun.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
