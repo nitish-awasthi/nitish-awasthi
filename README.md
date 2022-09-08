@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be like the flower, turn your face to the sun.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Mistakes are the usual bridge between inexperience and wisdom.</i><br><i>– Phyllis Grissim-Theroux.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
