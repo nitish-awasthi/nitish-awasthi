@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All this modern technology just makes people try to do everything at once.</i><br><i>– Bill Watterson.</i><br></p>
+<p align="center"><br><i>One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
