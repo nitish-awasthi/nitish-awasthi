@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mistakes are the usual bridge between inexperience and wisdom.</i><br><i>– Phyllis Grissim-Theroux.</i><br></p>
+<p align="center"><br><i>All this modern technology just makes people try to do everything at once.</i><br><i>– Bill Watterson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
