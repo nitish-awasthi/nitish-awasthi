@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.</i><br><i>– Barack Obama.</i><br></p>
+<p align="center"><br><i>Can you imagine what I would do if I could do all I can?</i><br><i>– Sun Tzu.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
