@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only thing to do with good advice is to pass it on. It is never of any use to oneself.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>The smallest deed is better than the greatest intention.</i><br><i>– John Burroughs.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
