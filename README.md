@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.</i><br><i>– Charles Darwin.</i><br></p>
+<p align="center"><br><i>In the middle of every difficulty lies opportunity.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
