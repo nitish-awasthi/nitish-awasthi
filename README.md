@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I prefer the folly of enthusiasm to the indifference of wisdom.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>It has been my experience that folks who have no vices have very few virtues.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
