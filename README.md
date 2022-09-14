@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship, like credit, is highest when it is not used.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>We have two ears and one mouth so that we can listen twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
