@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be yourself; everyone else is already taken.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>A little knowledge that acts is worth infinitely more than much knowledge that is idle.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
