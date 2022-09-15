@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We have two ears and one mouth so that we can listen twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.</i><br><i>– Edward de Bono.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
