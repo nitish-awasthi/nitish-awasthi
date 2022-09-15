@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.</i><br><i>– David Brinkley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
