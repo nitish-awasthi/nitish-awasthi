@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whatever happens, take responsibility.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
