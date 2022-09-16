@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No yesterdays are ever wasted for those who give themselves to today.</i><br><i>– Brendan Behan.</i><br></p>
+<p align="center"><br><i>Whatever happens, take responsibility.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
