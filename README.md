@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I love you the more in that I believe you had liked me for my own sake and for nothing else.</i><br><i>– John Keats.</i><br></p>
+<p align="center"><br><i>It is the neglect of timely repair that makes rebuilding necessary.</i><br><i>– Richard Whately.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
