@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are no strangers here; Only friends you haven't yet met.</i><br><i>– William Butler Yeats.</i><br></p>
+<p align="center"><br><i>That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.</i><br><i>– Martin Luther King Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
