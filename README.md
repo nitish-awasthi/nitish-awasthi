@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
+<p align="center"><br><i>The truest greatness lies in being kind, the truest wisdom in a happy mind.</i><br><i>– Ella Wheeler Wilcox.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
