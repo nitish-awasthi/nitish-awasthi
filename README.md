@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You won't skid if you stay in a rut.</i><br><i>– Kin Hubbard.</i><br></p>
+<p align="center"><br><i>The best argument against democracy is a five-minute conversation with the average voter.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
