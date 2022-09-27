@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not a lack of love, but a lack of friendship that makes unhappy marriages.</i><br><i>– Friedrich Nietzsche.</i><br></p>
+<p align="center"><br><i>Speak low, if you speak love.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
