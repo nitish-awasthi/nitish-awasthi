@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is someone who is there for you when he'd rather be anywhere else.</i><br><i>– Len Wein.</i><br></p>
+<p align="center"><br><i>The only true wisdom is in knowing you know nothing.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
