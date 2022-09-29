@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>As an organizer I start from where the world is, as it is, not as I would like it to be.</i><br><i>– Saul Alinsky.</i><br></p>
+<p align="center"><br><i>From wonder into wonder existence opens.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
