@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>This is why I loved technology: if you used it right, it could give you power and privacy.</i><br><i>– Cory Doctorow.</i><br></p>
+<p align="center"><br><i>One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.</i><br><i>– Brooks Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
