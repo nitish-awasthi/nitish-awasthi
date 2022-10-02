@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To see things in the seed, that is genius.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Happiness mainly comes from our own attitude, rather than from external factors.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
