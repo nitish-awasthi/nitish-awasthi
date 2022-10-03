@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>We can do no great things, only small things with great love.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
