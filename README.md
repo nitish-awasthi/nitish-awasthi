@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Golf is a game in which one endeavors to control a ball with implements ill adapted for the purpose.</i><br><i>– Woodrow Wilson.</i><br></p>
+<p align="center"><br><i>The superior man understands what is right; the inferior man understands what will sell.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
