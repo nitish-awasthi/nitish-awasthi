@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have always thought the actions of men the best interpreters of their thoughts.</i><br><i>– John Locke.</i><br></p>
+<p align="center"><br><i>I hear and I forget. I see and I remember. I do and I understand.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
