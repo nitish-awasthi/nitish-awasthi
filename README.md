@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The self is not something ready-made, but something in continuous formation through choice of action.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>You really can change the world if you care enough.</i><br><i>– Marian Wright Edelman.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
