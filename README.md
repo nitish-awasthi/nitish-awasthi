@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.</i><br><i>– John Keats.</i><br></p>
+<p align="center"><br><i>Don't judge each day by the harvest you reap but by the seeds that you plant.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
