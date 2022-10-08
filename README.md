@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When one tugs at a single thing in nature, he finds it attached to the rest of the world.</i><br><i>– John Muir.</i><br></p>
+<p align="center"><br><i>Think as a wise man but communicate in the language of the people.</i><br><i>– William Butler Yeats.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
