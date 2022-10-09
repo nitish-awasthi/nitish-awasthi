@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am an optimist. It does not seem too much use being anything else.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>It is far better to be alone, than to be in bad company.</i><br><i>– George Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
