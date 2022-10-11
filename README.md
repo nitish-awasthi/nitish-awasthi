@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Doing nothing is better than being busy doing nothing.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
