@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>One secret of success in life is for a man to be ready for his opportunity when it comes.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
