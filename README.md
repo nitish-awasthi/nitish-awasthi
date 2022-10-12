@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>I have learned that to be with those I like is enough.</i><br><i>– Walt Whitman.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
