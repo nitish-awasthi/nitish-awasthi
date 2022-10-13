@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the quality of our work which will please God, not the quantity.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>Science and technology revolutionize our lives, but memory, tradition and myth frame our response.</i><br><i>– Arthur M. Schlesinger Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
