@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Follow your instincts. That is where true wisdom manifests itself.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>The ladder of success is never crowded at the top.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
