@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology made large populations possible; large populations now make technology indispensable.</i><br><i>– Joseph Wood Krutch.</i><br></p>
+<p align="center"><br><i>The lure of the distant and the difficult is deceptive. The great opportunity is where you are.</i><br><i>– John Burroughs.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
