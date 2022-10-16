@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.</i><br><i>– William James.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
