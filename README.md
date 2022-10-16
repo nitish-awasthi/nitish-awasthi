@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In separateness lies the world's great misery, in compassion lies the world's true strength.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>To lead people walk behind them.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
