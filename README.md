@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>God made me fast. And when I run, I feel His pleasure.</i><br><i>– Eric Liddell.</i><br></p>
+<p align="center"><br><i>Football is football and talent is talent. But the mindset of your team makes all the difference.</i><br><i>– Robert Griffin III.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
