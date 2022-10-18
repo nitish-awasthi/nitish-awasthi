@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always do your best. What you plant now, you will harvest later.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>God made me fast. And when I run, I feel His pleasure.</i><br><i>– Eric Liddell.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
