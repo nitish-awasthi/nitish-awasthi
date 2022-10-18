@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Football is football and talent is talent. But the mindset of your team makes all the difference.</i><br><i>– Robert Griffin III.</i><br></p>
+<p align="center"><br><i>Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.</i><br><i>– Whoopi Goldberg.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
