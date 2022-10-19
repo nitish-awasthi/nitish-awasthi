@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through perseverance many people win success out of what seemed destined to be certain failure.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>I think somehow, we learn who we really are and then live with that decision.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
