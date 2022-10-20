@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anticipate the difficult by managing the easy.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>The way is not in the sky. The way is in the heart.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
