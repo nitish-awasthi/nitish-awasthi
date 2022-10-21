@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.</i><br><i>– Plotinus.</i><br></p>
+<p align="center"><br><i>Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
