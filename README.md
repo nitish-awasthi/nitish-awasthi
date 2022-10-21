@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're going through hell, keep going.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Very little is needed to make a happy life; it is all within yourself, in your way of thinking.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
