@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Choose a job you love, and you will never have to work a day in your life.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Science and technology revolutionize our lives, but memory, tradition and myth frame our response.</i><br><i>– Arthur M. Schlesinger Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
