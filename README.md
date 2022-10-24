@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature takes away any faculty that is not used.</i><br><i>– William Inge.</i><br></p>
+<p align="center"><br><i>The greatest remedy for anger is delay.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
