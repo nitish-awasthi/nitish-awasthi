@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never interrupt your enemy when he is making a mistake.</i><br><i>– Napoleon.</i><br></p>
+<p align="center"><br><i>You always have two choices: your commitment versus your fear.</i><br><i>– Sammy Davis Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
