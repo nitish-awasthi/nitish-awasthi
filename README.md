@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>There is no way to prosperity, prosperity is the way.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
