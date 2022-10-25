@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You always have two choices: your commitment versus your fear.</i><br><i>– Sammy Davis Jr..</i><br></p>
+<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
