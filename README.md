@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
