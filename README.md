@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.</i><br><i>– Max Planck.</i><br></p>
+<p align="center"><br><i>What we think, we become.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
