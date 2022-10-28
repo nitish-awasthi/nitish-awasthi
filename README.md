@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great acts are made up of small deeds.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Time is the wisest counsellor of all.</i><br><i>– Pericles.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
