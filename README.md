@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time is the wisest counsellor of all.</i><br><i>– Pericles.</i><br></p>
+<p align="center"><br><i>Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.</i><br><i>– John Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
