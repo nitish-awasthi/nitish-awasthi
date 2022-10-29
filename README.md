@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We don't stop playing because we grow old; we grow old because we stop playing.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>Problems are only opportunities with thorns on them.</i><br><i>– Hugh Miller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
