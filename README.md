@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Problems are only opportunities with thorns on them.</i><br><i>– Hugh Miller.</i><br></p>
+<p align="center"><br><i>What is a weed? A plant whose virtues have not yet been discovered.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
