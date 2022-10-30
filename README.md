@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is about timing.</i><br><i>– Carl Lewis.</i><br></p>
+<p align="center"><br><i>When times are bad is when the real entrepreneurs emerge.</i><br><i>– Robert Kiyosaki.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
