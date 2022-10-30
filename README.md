@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things that were hard to bear are sweet to remember.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
