@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be the change that you want to see in the world.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>What you get by achieving your goals is not as important as what you become by achieving your goals.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
