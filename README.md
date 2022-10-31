@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.</i><br><i>– Kurt Vonnegut.</i><br></p>
+<p align="center"><br><i>Be the change that you want to see in the world.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
