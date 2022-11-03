@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
+<p align="center"><br><i>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
