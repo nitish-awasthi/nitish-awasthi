@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.</i><br><i>– Vince Lombardi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
