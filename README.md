@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are two kinds of failures: those who thought and never did, and those who did and never thought.</i><br><i>– Laurence J. Peter.</i><br></p>
+<p align="center"><br><i>Time is the most valuable thing a man can spend.</i><br><i>– Theophrastus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
