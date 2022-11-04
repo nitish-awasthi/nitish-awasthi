@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody.</i><br><i>– Herbert Bayard Swope.</i><br></p>
+<p align="center"><br><i>We know what we are but know not what we may be.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
