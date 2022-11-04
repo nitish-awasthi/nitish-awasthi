@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information?</i><br><i>– George Eliot.</i><br></p>
+<p align="center"><br><i>Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
