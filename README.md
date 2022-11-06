@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If opportunity doesn't knock, build a door.</i><br><i>– Milton Berle.</i><br></p>
+<p align="center"><br><i>Argue for your limitations, and sure enough they're yours.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
