@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.</i><br><i>– William Saroyan.</i><br></p>
+<p align="center"><br><i>Argue for your limitations, and sure enough they're yours.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
