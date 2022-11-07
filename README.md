@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love all, trust a few, do wrong to none.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Smile, breathe and go slowly.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
