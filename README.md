@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our dreams can come true, if we have the courage to pursue them.</i><br><i>– Walt Disney.</i><br></p>
+<p align="center"><br><i>To accomplish great things, we must dream as well as act.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
