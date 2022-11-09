@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.</i><br><i>– Vince Lombardi.</i><br></p>
+<p align="center"><br><i>There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
