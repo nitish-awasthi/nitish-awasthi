@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.</i><br><i>– Eric Hoffer.</i><br></p>
+<p align="center"><br><i>Programs must be written for people to read, and only incidentally for machines to execute.</i><br><i>– Hal Abelson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
