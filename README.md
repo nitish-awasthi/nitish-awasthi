@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Every great advance in science has issued from a new audacity of the imagination.</i><br><i>– John Dewey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
