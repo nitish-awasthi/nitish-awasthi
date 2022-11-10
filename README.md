@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every great advance in science has issued from a new audacity of the imagination.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>Never bend your head. Always hold it high. Look the world right in the eye.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
