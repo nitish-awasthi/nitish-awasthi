@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.</i><br><i>– Francis Bacon.</i><br></p>
+<p align="center"><br><i>The key to growth is the introduction of higher dimensions of consciousness into our awareness.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
