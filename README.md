@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The key to growth is the introduction of higher dimensions of consciousness into our awareness.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.</i><br><i>– Anne Frank.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
