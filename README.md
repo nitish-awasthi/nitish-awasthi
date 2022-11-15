@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>Argue for your limitations, and sure enough they're yours.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
