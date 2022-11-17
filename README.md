@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Learning never exhausts the mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.</i><br><i>– Mortimer J. Adler.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
