@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ignorance and bungling with love are better than wisdom and skill without.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>Learning never exhausts the mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
