@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Ignorance and bungling with love are better than wisdom and skill without.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
