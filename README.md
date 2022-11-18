@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
