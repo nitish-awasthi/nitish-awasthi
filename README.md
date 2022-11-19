@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.</i><br><i>– Charles Eastman.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
