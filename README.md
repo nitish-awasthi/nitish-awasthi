@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.</i><br><i>– Walter Lippmann.</i><br></p>
+<p align="center"><br><i>False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.</i><br><i>– Richard Burton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
