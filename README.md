@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When the world is so complicated, the simple gift of friendship is within all of our hands.</i><br><i>– Maria Shriver.</i><br></p>
+<p align="center"><br><i>In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.</i><br><i>– Janet Jackson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
