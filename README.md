@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.</i><br><i>– Janet Jackson.</i><br></p>
+<p align="center"><br><i>To bring anything into your life, imagine that it's already there.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
