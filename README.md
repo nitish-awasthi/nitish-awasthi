@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.</i><br><i>– Richard Burton.</i><br></p>
+<p align="center"><br><i>To fly as fast as thought, you must begin by knowing that you have already arrived.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
