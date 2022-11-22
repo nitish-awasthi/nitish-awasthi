@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.</i><br><i>– Gordon Hinckley.</i><br></p>
+<p align="center"><br><i>Meaning is not what you start with but what you end up with.</i><br><i>– Peter Elbow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
