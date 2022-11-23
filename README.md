@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Think for yourselves and let others enjoy the privilege to do so too.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>A person who never made a mistake never tried anything new.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
