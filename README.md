@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace comes from within. Do not seek it without.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>To be happy is to be able to become aware of oneself without fright.</i><br><i>– Walter Benjamin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
