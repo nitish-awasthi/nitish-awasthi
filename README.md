@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love and friendship exclude each other.</i><br><i>– Jean de La Bruyère.</i><br></p>
+<p align="center"><br><i>A good plan violently executed now is better than a perfect plan executed next week.</i><br><i>– George S. Patton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
