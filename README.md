@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have often regretted my speech, never my silence.</i><br><i>– Publilius Syrus.</i><br></p>
+<p align="center"><br><i>To profit from good advice requires more wisdom than to give it.</i><br><i>– Wilson Mizner.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
