@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is when what you think, what you say, and what you do are in harmony.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>The invariable mark of wisdom is to see the miraculous in the common.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
