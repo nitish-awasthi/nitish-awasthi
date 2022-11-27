@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is like a sewer. What you get out of it depends on what you put into it.</i><br><i>– Tom Lehrer.</i><br></p>
+<p align="center"><br><i>There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
