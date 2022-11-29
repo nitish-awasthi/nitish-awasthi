@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>The only Zen you find on the tops of mountains is the Zen you bring up there.</i><br><i>– Robert M. Pirsig.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
