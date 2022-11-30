@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.</i><br><i>– Edward Young.</i><br></p>
+<p align="center"><br><i>I am always ready to learn although I do not always like being taught.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
