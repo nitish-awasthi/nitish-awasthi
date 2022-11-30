@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am always ready to learn although I do not always like being taught.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>The greatest healing therapy is friendship and love.</i><br><i>– Hubert Humphrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
