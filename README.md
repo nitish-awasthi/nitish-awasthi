@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The language of friendship is not words but meanings.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.</i><br><i>– Edward Young.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
