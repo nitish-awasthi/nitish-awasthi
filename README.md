@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be great in act, as you have been in thought.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>The two most powerful warriors are patience and time.</i><br><i>– Leo Tolstoy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
