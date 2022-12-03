@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Courage is going from failure to failure without losing enthusiasm.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
