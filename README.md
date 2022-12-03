@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>Be great in act, as you have been in thought.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
