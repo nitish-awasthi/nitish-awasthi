@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What we achieve inwardly will change outer reality.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>God has given you one face, and you make yourself another.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
