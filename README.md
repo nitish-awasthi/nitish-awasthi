@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We can change our lives. We can do, have, and be exactly what we wish.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Unless one is able to live fully in the present, the future is a hoax.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
