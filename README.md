@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The self is not something ready-made, but something in continuous formation through choice of action.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>We can change our lives. We can do, have, and be exactly what we wish.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
