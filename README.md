@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The amount of happiness that you have depends on the amount of freedom you have in your heart.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.</i><br><i>– Uta Hagen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
