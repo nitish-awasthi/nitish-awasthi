@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Goals are the fuel in the furnace of achievement.</i><br><i>– Brian Tracy.</i><br></p>
+<p align="center"><br><i>The mind is everything. What you think you become.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
