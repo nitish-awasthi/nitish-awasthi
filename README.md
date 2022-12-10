@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>By believing passionately in something that does not yet exist, we create it.</i><br><i>– Nikos Kazantzakis.</i><br></p>
+<p align="center"><br><i>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
