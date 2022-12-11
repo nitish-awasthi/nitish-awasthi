@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When the world is so complicated, the simple gift of friendship is within all of our hands.</i><br><i>– Maria Shriver.</i><br></p>
+<p align="center"><br><i>Life is a progress, and not a station.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
