@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you accept the expectations of others, especially negative ones, then you never will change the outcome.</i><br><i>– Michael Jordan.</i><br></p>
+<p align="center"><br><i>Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.</i><br><i>– Archimedes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
