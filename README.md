@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
