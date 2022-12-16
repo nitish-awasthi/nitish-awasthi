@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be the change that you want to see in the world.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>Do not go where the path may lead, go instead where there is no path and leave a trail.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
