@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is always an overmatch for strength.</i><br><i>– Phil Jackson.</i><br></p>
+<p align="center"><br><i>Silence is a source of great strength.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
