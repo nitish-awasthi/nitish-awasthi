@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who dare to fail miserably can achieve greatly.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
