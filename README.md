@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>The most complicated achievements of thought are possible without the assistance of consciousness.</i><br><i>– Sigmund Freud.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
