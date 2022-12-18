@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
+<p align="center"><br><i>What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
