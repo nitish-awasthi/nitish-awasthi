@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>An organization, no matter how well designed, is only as good as the people who live and work in it.</i><br><i>– Dee Hock.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
