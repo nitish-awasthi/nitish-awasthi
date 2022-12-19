@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The heart has its reasons which reason knows not of.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
