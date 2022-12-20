@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no charm equal to tenderness of heart.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>Nothing diminishes anxiety faster than action.</i><br><i>– Walter Inglis Anderson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
