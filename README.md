@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.</i><br><i>– Henry Ward Beecher.</i><br></p>
+<p align="center"><br><i>Good timber does not grow with ease; the stronger the wind, the stronger the trees.</i><br><i>– J. Willard Marriott.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
