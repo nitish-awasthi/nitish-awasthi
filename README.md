@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you don't know where you are going, any road will get you there.</i><br><i>– Lewis Carroll.</i><br></p>
+<p align="center"><br><i>Positive thinking will let you do everything better than negative thinking will.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
