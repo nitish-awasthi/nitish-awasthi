@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Remember that the most valuable antiques are dear old friends.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>A quarrel between friends, when made up, adds a new tie to friendship.</i><br><i>– Francis de Sales.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
