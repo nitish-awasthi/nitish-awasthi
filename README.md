@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I can't imagine a person becoming a success who doesn't give this game of life everything he's got.</i><br><i>– Walter Cronkite.</i><br></p>
+<p align="center"><br><i>Remember that the most valuable antiques are dear old friends.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
