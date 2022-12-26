@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The grand essentials of happiness are: something to do, something to love, and something to hope for.</i><br><i>– Alexander Chalmers.</i><br></p>
+<p align="center"><br><i>Wishing to be friends is quick work, but friendship is a slow ripening fruit.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
