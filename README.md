@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In all things of nature there is something of the marvelous.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
