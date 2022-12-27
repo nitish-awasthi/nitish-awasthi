@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.</i><br><i>– Samuel Johnson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
