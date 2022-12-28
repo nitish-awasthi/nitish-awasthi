@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You might well remember that nothing can bring you success but yourself.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>I will prepare and some day my chance will come.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
