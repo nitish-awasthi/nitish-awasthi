@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.</i><br><i>– Elizabeth Kapu'uwailani Lindsey.</i><br></p>
+<p align="center"><br><i>Quality is never an accident; it is always the result of intelligent effort.</i><br><i>– John Ruskin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
