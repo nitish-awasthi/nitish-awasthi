@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Quality is never an accident; it is always the result of intelligent effort.</i><br><i>– John Ruskin.</i><br></p>
+<p align="center"><br><i>You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
