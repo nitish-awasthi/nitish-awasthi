@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Leave no stone unturned.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>You can stand tall without standing on someone. You can be a victor without having victims.</i><br><i>– Harriet Woods.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
