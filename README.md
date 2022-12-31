@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>And as we let our own light shine, we unconsciously give other people permission to do the same.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>There is no greater harm than that of time wasted.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
