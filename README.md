@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no greater harm than that of time wasted.</i><br><i>– Michelangelo.</i><br></p>
+<p align="center"><br><i>He who talks more is sooner exhausted.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
