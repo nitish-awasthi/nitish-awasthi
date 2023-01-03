@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't compromise yourself. You are all you've got.</i><br><i>– Janis Joplin.</i><br></p>
+<p align="center"><br><i>Each day provides its own gifts.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
