@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each day provides its own gifts.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>The greatest obstacle to connecting with our joy is resentment.</i><br><i>– Pema Chödrön.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
