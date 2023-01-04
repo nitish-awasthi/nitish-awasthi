@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>An idea that is developed and put into action is more important than an idea that exists only as an idea.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Knowing others is wisdom, knowing yourself is Enlightenment.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
