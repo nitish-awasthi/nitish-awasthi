@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.</i><br><i>– Peter Abelard.</i><br></p>
+<p align="center"><br><i>Music is a higher revelation than all wisdom and philosophy.</i><br><i>– Ludwig van Beethoven.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
