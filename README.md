@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man was ever wise by chance.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.</i><br><i>– Peter Abelard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
