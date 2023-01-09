@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We have committed the Golden Rule to memory; let us now commit it to life.</i><br><i>– Edwin Markham.</i><br></p>
+<p align="center"><br><i>It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.</i><br><i>– Jessamyn West.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
