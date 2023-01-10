@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.</i><br><i>– Zhuang Zhou.</i><br></p>
+<p align="center"><br><i>So long as a person is capable of self-renewal they are a living being.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
