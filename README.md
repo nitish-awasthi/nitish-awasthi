@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no great genius without some touch of madness.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Adversity causes some men to break, others to break records.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
