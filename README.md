@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I begin with an idea and then it becomes something else.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>There are two ways of spreading light: to be the candle or the mirror that reflects it.</i><br><i>– Edith Wharton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
