@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Adversity causes some men to break, others to break records.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>If you think you can, you can. And if you think you can't, you're right.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
