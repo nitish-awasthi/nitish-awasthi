@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>How wonderful that we have met with a paradox. Now we have some hope of making progress.</i><br><i>– Niels Bohr.</i><br></p>
+<p align="center"><br><i>The eye sees only what the mind is prepared to comprehend.</i><br><i>– Henri Bergson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
