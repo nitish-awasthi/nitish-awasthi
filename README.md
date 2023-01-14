@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Obstacles are those frightful things you see when you take your eyes off your goal.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
