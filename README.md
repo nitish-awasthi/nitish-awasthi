@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You won't skid if you stay in a rut.</i><br><i>– Kin Hubbard.</i><br></p>
+<p align="center"><br><i>Our distrust is very expensive.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
