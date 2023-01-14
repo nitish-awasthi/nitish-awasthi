@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.</i><br><i>– Daniel J. Boorstin.</i><br></p>
+<p align="center"><br><i>The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
