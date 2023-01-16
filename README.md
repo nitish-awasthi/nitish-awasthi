@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Truth, and goodness, and beauty are but different faces of the same all.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>We do not quit playing because we grow old, we grow old because we quit playing.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
