@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Experience is not what happens to a man. It is what a man does with what happens to him.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
