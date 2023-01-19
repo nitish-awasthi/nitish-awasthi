@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One's friends are that part of the human race with which one can be human.</i><br><i>– George Santayana.</i><br></p>
+<p align="center"><br><i>Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.</i><br><i>– Samuel Richardson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
