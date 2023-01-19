@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.</i><br><i>– Samuel Richardson.</i><br></p>
+<p align="center"><br><i>Experience is not what happens to you; it's what you do with what happens to you.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
