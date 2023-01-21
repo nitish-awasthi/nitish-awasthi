@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Commitment is an act, not a word.</i><br><i>– Jean-Paul Sartre.</i><br></p>
+<p align="center"><br><i>Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.</i><br><i>– Gloria Steinem.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
