@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best thing in every noble dream is the dreamer...</i><br><i>– Moncure D. Conway.</i><br></p>
+<p align="center"><br><i>Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.</i><br><i>– Norman Vincent Peale.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
