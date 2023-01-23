@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>To be tested is good. The challenged life may be the best therapist.</i><br><i>– Gail Sheehy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
