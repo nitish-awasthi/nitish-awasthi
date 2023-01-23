@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
