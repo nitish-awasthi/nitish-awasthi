@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>Wisdom begins in wonder.</i><br><i>– Socrates.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
