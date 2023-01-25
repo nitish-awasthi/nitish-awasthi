@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom begins in wonder.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>Learning without reflection is a waste, reflection without learning is dangerous.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
