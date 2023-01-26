@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.</i><br><i>– Paramahansa Yogananda.</i><br></p>
+<p align="center"><br><i>To conquer fear is the beginning of wisdom.</i><br><i>– Bertrand Russell.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
