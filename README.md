@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The universe is made of stories, not atoms.</i><br><i>– Muriel Rukeyser.</i><br></p>
+<p align="center"><br><i>Very little is needed to make a happy life; it is all within yourself, in your way of thinking.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
