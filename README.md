@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Knowing is not enough; we must apply. Willing is not enough; we must do.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
