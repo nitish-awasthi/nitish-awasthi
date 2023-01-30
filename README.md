@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you want things to be different, perhaps the answer is to become different yourself.</i><br><i>– Norman Vincent Peale.</i><br></p>
+<p align="center"><br><i>Those who are free of resentful thoughts surely find peace.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
