@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who are free of resentful thoughts surely find peace.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Friendship, like credit, is highest when it is not used.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
