@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship, like credit, is highest when it is not used.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>A good decision is based on knowledge and not on numbers.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
