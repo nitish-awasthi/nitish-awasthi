@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>For everything that lives is holy, life delights in life.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>A garden is always a series of losses set against a few triumphs, like life itself.</i><br><i>– May Sarton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
