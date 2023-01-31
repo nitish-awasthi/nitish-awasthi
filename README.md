@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A garden is always a series of losses set against a few triumphs, like life itself.</i><br><i>– May Sarton.</i><br></p>
+<p align="center"><br><i>I think and that is all that I am.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
