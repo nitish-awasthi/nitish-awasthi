@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Love, friendship and respect do not unite people as much as a common hatred for something.</i><br><i>– Anton Chekhov.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
