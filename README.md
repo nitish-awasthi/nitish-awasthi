@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.</i><br><i>– Eric Hoffer.</i><br></p>
+<p align="center"><br><i>True knowledge exists in knowing that you know nothing.</i><br><i>– Isocrates.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
