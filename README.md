@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Build a better mousetrap and the world will beat a path to your door.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Life shrinks or expands in proportion to one's courage.</i><br><i>– Anaïs Nin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
