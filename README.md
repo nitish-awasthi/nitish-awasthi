@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The price of greatness is responsibility.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
