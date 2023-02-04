@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination will often carry us to worlds that never were. But without it we go nowhere.</i><br><i>– Carl Sagan.</i><br></p>
+<p align="center"><br><i>When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
