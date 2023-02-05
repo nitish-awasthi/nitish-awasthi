@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.</i><br><i>– Muhammad Ali.</i><br></p>
+<p align="center"><br><i>Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
