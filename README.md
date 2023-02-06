@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never bend your head. Always hold it high. Look the world right in the eye.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Kindness is the language which the deaf can hear and the blind can see.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
