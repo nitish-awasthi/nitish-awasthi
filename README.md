@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing diminishes anxiety faster than action.</i><br><i>– Walter Inglis Anderson.</i><br></p>
+<p align="center"><br><i>The weak can never forgive. Forgiveness is the attribute of the strong.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
