@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom comes alone through suffering.</i><br><i>– Aeschylus.</i><br></p>
+<p align="center"><br><i>You can do it if you believe you can!</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
