@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If one does not know to which port one is sailing, no wind is favorable.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>I can't listen to that much Wagner. I start getting the urge to conquer Poland.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
