@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't watch the clock; do what it does. Keep going.</i><br><i>– Sam Levenson.</i><br></p>
+<p align="center"><br><i>The amount of happiness that you have depends on the amount of freedom you have in your heart.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
