@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are shaped by our thoughts; we become what we think. When the mind is pure, joy follows like a shadow that never leaves.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>Every gift from a friend is a wish for your happiness.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
