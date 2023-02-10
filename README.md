@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The amount of happiness that you have depends on the amount of freedom you have in your heart.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>Fortune befriends the bold.</i><br><i>– John Dryden.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
