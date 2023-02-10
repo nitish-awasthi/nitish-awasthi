@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fortune befriends the bold.</i><br><i>– John Dryden.</i><br></p>
+<p align="center"><br><i>The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.</i><br><i>– Will Durant.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
