@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.</i><br><i>– Will Durant.</i><br></p>
+<p align="center"><br><i>Truth is generally the best vindication against slander.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
