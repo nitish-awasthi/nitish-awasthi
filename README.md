@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who is fixed to a star does not change his mind.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>The superior man understands what is right; the inferior man understands what will sell.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
