@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Truth is generally the best vindication against slander.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>If you surrender to the wind, you can ride it.</i><br><i>– Toni Morrison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
