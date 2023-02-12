@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You got to be careful if you don't know where you're going, because you might not get there.</i><br><i>– Yogi Berra.</i><br></p>
+<p align="center"><br><i>What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
