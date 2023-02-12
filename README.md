@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's easier to resist at the beginning than at the end.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>You got to be careful if you don't know where you're going, because you might not get there.</i><br><i>– Yogi Berra.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
