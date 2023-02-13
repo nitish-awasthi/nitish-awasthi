@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Action is the foundational key to all success.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>Don't smother each other. No one can grow in the shade.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
