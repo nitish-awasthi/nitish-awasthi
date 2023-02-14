@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Applause is a receipt, not a bill.</i><br><i>– Dale Carnegie.</i><br></p>
+<p align="center"><br><i>Character develops itself in the stream of life.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
