@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing so useless as doing efficiently that which should not be done at all.</i><br><i>– Peter Drucker.</i><br></p>
+<p align="center"><br><i>Time stays long enough for anyone who will use it.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
