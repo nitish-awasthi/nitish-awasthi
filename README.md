@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>There is nothing so useless as doing efficiently that which should not be done at all.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
