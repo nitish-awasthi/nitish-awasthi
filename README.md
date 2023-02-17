@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To fly, we have to have resistance.</i><br><i>– Maya Lin.</i><br></p>
+<p align="center"><br><i>Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.</i><br><i>– Sidney Hook.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
