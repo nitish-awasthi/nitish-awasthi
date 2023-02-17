@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All is flux; nothing stays still.</i><br><i>– Heraclitus.</i><br></p>
+<p align="center"><br><i>You don't play against opponents, you play against the game of basketball.</i><br><i>– Bob Knight.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
