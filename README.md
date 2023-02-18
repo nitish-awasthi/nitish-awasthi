@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The fox has many tricks. The hedgehog has but one. But that is the best of all.</i><br><i>– Erasmus.</i><br></p>
+<p align="center"><br><i>Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.</i><br><i>– Louis Pasteur.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
