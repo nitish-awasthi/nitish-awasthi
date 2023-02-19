@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.</i><br><i>– Louis Pasteur.</i><br></p>
+<p align="center"><br><i>Attitude is a little thing that makes a big difference.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
