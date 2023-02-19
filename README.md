@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</i><br><i>– Molière.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
