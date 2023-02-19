@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Attitude is a little thing that makes a big difference.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>With age comes wisdom and a high sex drive. And the wisdom to enjoy it.</i><br><i>– Amber Valletta.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
