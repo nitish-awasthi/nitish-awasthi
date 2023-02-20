@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.</i><br><i>– Molière.</i><br></p>
+<p align="center"><br><i>All that I am, or hope to be, I owe to my angel mother.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
