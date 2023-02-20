@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.</i><br><i>– Neil Gaiman.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
