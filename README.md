@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that I am, or hope to be, I owe to my angel mother.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
