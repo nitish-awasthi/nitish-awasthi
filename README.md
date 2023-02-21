@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.</i><br><i>– Neil Gaiman.</i><br></p>
+<p align="center"><br><i>It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.</i><br><i>– Max Planck.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
