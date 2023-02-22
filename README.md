@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is someone who is there for you when he'd rather be anywhere else.</i><br><i>– Len Wein.</i><br></p>
+<p align="center"><br><i>Practice yourself, for heaven's sake in little things, and then proceed to greater.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
