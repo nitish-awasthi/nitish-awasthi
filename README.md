@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Liberty, taking the word in its concrete sense, consists in the ability to choose.</i><br><i>– Simone Weil.</i><br></p>
+<p align="center"><br><i>If you would take, you must first give, this is the beginning of intelligence.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
