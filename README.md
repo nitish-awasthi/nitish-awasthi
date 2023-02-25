@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Happiness is a perfume you cannot pour on others without getting a few drops on yourself.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
