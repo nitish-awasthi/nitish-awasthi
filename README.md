@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
