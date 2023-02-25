@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Argue for your limitations, and sure enough they're yours.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else; you are the one who gets burned.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
