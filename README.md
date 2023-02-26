@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else; you are the one who gets burned.</i><br><i>– Buddha.</i><br></p>
+<p align="center"><br><i>It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
