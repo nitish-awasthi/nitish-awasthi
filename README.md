@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In three words I can sum up everything I've learned about life: it goes on.</i><br><i>– Robert Frost.</i><br></p>
+<p align="center"><br><i>To know oneself is to study oneself in action with another person.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
