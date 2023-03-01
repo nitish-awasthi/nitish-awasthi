@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
+<p align="center"><br><i>Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.</i><br><i>– Abigail Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
