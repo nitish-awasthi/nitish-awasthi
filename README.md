@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are no failures. Just experiences and your reactions to them.</i><br><i>– Tom Krause.</i><br></p>
+<p align="center"><br><i>Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.</i><br><i>– Johann Kaspar Lavater.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
