@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be the change that you want to see in the world.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>There are no failures. Just experiences and your reactions to them.</i><br><i>– Tom Krause.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
