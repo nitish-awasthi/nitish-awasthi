@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.</i><br><i>– Johann Kaspar Lavater.</i><br></p>
+<p align="center"><br><i>Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.</i><br><i>– Ben Fountain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
