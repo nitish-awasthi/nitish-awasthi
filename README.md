@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Things turn out best for those who make the best of the way things turn out.</i><br><i>– Jack Buck.</i><br></p>
+<p align="center"><br><i>Happiness mainly comes from our own attitude, rather than from external factors.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
