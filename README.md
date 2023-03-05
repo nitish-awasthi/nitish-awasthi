@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The secret of success is constancy to purpose.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>Happiness can exist only in acceptance.</i><br><i>– George Orwell.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
