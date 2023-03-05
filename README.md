@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man is great by deeds, not by birth.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>The secret of success is constancy to purpose.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
