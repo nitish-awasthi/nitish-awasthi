@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Only do what your heart tells you.</i><br><i>– Princess Diana.</i><br></p>
+<p align="center"><br><i>Most of the shadows of life are caused by standing in our own sunshine.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
