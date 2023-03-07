@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Work while you have the light. You are responsible for the talent that has been entrusted to you.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
+<p align="center"><br><i>Only do what your heart tells you.</i><br><i>– Princess Diana.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
