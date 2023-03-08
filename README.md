@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fame usually comes to those who are thinking about something else.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
+<p align="center"><br><i>Living at risk is jumping off the cliff and building your wings on the way down.</i><br><i>– Ray Bradbury.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
