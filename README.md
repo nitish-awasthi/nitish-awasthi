@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Where there is love there is life.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>Every human being is the author of his own health or disease.</i><br><i>– Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
