@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Appearances are often deceiving.</i><br><i>– Aesop.</i><br></p>
+<p align="center"><br><i>I owe my solitude to other people.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
