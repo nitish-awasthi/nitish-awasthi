@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The possibilities are numerous once we decide to act and not react.</i><br><i>– George Bernard Shaw.</i><br></p>
+<p align="center"><br><i>A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.</i><br><i>– Oliver Wendell Holmes Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
