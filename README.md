@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>The possibilities are numerous once we decide to act and not react.</i><br><i>– George Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
