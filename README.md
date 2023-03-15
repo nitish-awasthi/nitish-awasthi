@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Never idealize others. They will never live up to your expectations.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
