@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.</i><br><i>– Jim Bouton.</i><br></p>
+<p align="center"><br><i>What is not started today is never finished tomorrow.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
