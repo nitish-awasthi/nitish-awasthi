@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>History will be kind to me for I intend to write it.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.</i><br><i>– Thomas Carlyle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
