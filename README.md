@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is not started today is never finished tomorrow.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Never apologize for showing feelings. When you do so, you apologize for the truth.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
