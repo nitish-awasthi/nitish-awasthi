@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.</i><br><i>– Marilyn Monroe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
