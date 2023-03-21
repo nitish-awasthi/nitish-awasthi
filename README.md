@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Allow the world to live as it chooses, and allow yourself to live as you choose.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.</i><br><i>– Louis Pasteur.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
