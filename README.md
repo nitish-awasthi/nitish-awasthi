@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.</i><br><i>– Charles Lamb.</i><br></p>
+<p align="center"><br><i>Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.</i><br><i>– David Rockefeller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
