@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>My best friend is the one who brings out the best in me.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
