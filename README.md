@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only way to make sense out of change is to plunge into it, move with it, and join the dance.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Love cures people - both the ones who give it and the ones who receive it.</i><br><i>– Karl Menninger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
