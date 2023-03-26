@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties are things that show a person what they are.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>I know not age, nor weariness nor defeat.</i><br><i>– Rose Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
