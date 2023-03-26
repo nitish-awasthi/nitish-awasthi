@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.</i><br><i>– Woodrow Wilson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
