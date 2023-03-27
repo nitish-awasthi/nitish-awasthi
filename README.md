@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.</i><br><i>– Wayne Gretzky.</i><br></p>
+<p align="center"><br><i>Through perseverance many people win success out of what seemed destined to be certain failure.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
