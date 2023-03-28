@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Anticipate the difficult by managing the easy.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>A house divided against itself cannot stand.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
