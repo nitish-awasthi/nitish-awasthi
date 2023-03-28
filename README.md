@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through perseverance many people win success out of what seemed destined to be certain failure.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>I'm tired of hearing about money, money, money, money, money. I just want to play the game, drink Pepsi, and wear Reebok.</i><br><i>– Shaquille O'Neal.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
