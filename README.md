@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>If your actions inspire others to dream more, learn more, do more and become more, you are a leader.</i><br><i>– John Quincy Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
