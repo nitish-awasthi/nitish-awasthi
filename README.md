@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.</i><br><i>– Kathleen Norris.</i><br></p>
+<p align="center"><br><i>To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.</i><br><i>– Tony Robbins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
