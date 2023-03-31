@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Through perseverance many people win success out of what seemed destined to be certain failure.</i><br><i>– Benjamin Disraeli.</i><br></p>
+<p align="center"><br><i>Friendship may, and often does, grow into love, but love never subsides into friendship.</i><br><i>– Lord Byron.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
