@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's important to know that words don't move mountains. Work, exacting work moves mountains.</i><br><i>– Danilo Dolci.</i><br></p>
+<p align="center"><br><i>If one does not know to which port is sailing, no wind is favorable.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
