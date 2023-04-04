@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is the supreme part of happiness.</i><br><i>– Sophocles.</i><br></p>
+<p align="center"><br><i>Fears are nothing more than a state of mind.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
