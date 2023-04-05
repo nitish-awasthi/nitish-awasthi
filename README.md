@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in.</i><br><i>– Katherine Mansfield.</i><br></p>
+<p align="center"><br><i>All the great performers I have worked with are fueled by a personal dream.</i><br><i>– John Eliot.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
