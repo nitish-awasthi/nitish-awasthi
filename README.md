@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Bad times have a scientific value. These are occasions a good learner would not miss.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.</i><br><i>– Nora Roberts.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
