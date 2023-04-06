@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All the great performers I have worked with are fueled by a personal dream.</i><br><i>– John Eliot.</i><br></p>
+<p align="center"><br><i>It is time to remember that old wisdom our soldiers will never forget: that whether we are black or brown or white, we all bleed the same red blood of patriots, we all enjoy the same glorious freedoms, and we all salute the same great American Flag.</i><br><i>– Donald Trump.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
