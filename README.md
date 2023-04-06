@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing ever goes away until it has taught us what we need to know.</i><br><i>– Pema Chödrön.</i><br></p>
+<p align="center"><br><i>Action is eloquence.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
