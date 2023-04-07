@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition.</i><br><i>– Ralph Abernathy.</i><br></p>
+<p align="center"><br><i>Let there be no purpose in friendship save the deepening of the spirit.</i><br><i>– Kahlil Gibran.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
