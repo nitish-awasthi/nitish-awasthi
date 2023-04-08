@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All wisdom does not reside in Delhi.</i><br><i>– P. Chidambaram.</i><br></p>
+<p align="center"><br><i>If you want to go east, don't go west.</i><br><i>– Ramakrishna.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
