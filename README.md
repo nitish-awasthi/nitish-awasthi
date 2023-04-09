@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
