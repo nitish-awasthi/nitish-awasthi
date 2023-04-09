@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.</i><br><i>– Denis Waitley.</i><br></p>
+<p align="center"><br><i>There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
