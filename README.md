@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.</i><br><i>– Anne Brontë.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
