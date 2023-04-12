@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We can only learn to love by loving.</i><br><i>– Iris Murdoch.</i><br></p>
+<p align="center"><br><i>We must become the change we want to see.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
