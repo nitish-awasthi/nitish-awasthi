@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Beware of false knowledge; it is more dangerous than ignorance.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
