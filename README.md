@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Nobody made a greater mistake than he who did nothing because he could do only a little.</i><br><i>– Edmund Burke.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
