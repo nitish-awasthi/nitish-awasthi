@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nobody made a greater mistake than he who did nothing because he could do only a little.</i><br><i>– Edmund Burke.</i><br></p>
+<p align="center"><br><i>If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.</i><br><i>– John Steinbeck.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
