@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>Our lives are a sum total of the choices we have made.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
