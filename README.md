@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone thinks of changing the world, but no one thinks of changing himself.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
