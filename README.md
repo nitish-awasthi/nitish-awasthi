@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.</i><br><i>– Elisabeth Kübler-Ross.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
