@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>Watch the little things; a small leak will sink a great ship.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
