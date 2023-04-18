@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To know oneself is to study oneself in action with another person.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>The ego is nothing other than the focus of conscious attention.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
