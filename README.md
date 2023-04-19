@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts.</i><br><i>– Dan Gable.</i><br></p>
+<p align="center"><br><i>You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
