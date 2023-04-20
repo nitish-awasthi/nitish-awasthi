@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Waste no more time arguing about what a good man should be. Be one.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>No one can make you feel inferior without your consent.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
