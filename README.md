@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot step twice into the same river, for other waters are continually flowing in.</i><br><i>– Heraclitus.</i><br></p>
+<p align="center"><br><i>Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.</i><br><i>– Francis of Assisi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
