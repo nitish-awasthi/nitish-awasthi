@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.</i><br><i>– Francis of Assisi.</i><br></p>
+<p align="center"><br><i>Friendship without self-interest is one of the rare and beautiful things of life.</i><br><i>– James F. Byrnes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
