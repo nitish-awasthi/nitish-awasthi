@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Delight in heedfulness! Guard well your thoughts!</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>If we look at the world with a love of life, the world will reveal its beauty to us.</i><br><i>– Daisaku Ikeda.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
