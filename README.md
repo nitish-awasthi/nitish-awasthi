@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship multiplies the good of life and divides the evil.</i><br><i>– Baltasar Gracián.</i><br></p>
+<p align="center"><br><i>If opportunity doesn't knock, build a door.</i><br><i>– Milton Berle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
