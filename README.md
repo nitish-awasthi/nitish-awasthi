@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Real magic in relationships means an absence of judgement of others.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>It is only when the mind and character slumber that the dress can be seen.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
