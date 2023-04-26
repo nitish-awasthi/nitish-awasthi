@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whoso loves, believes the impossible.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
