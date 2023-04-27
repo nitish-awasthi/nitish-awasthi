@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.</i><br><i>– Chanakya.</i><br></p>
+<p align="center"><br><i>Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
