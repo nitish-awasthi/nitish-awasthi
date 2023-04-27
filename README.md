@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.</i><br><i>– Henry Ward Beecher.</i><br></p>
+<p align="center"><br><i>I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.</i><br><i>– Robert Schuller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
