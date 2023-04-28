@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The real problem is not whether machines think but whether men do.</i><br><i>– B. F. Skinner.</i><br></p>
+<p align="center"><br><i>The only limit to our realization of tomorrow will be our doubts of today.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
