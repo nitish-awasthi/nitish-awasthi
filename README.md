@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more man meditates upon good thoughts, the better will be his world and the world at large.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The truest wisdom is a resolute determination.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
