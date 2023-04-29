@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>With age comes wisdom and a high sex drive. And the wisdom to enjoy it.</i><br><i>– Amber Valletta.</i><br></p>
+<p align="center"><br><i>The more man meditates upon good thoughts, the better will be his world and the world at large.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
