@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>How is it possible to find meaning in a finite world, given my waist and shirt size?</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>Things that were hard to bear are sweet to remember.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
