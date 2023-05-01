@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.</i><br><i>– Wolfgang Amadeus Mozart.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
