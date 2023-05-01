@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the advantages of being disorderly is that one is constantly making exciting discoveries.</i><br><i>– A. A. Milne.</i><br></p>
+<p align="center"><br><i>Reality does not conform to the ideal but confirms it.</i><br><i>– Gustave Flaubert.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
