@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the most beautiful qualities of true friendship is to understand and to be understood.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Never explain - your friends do not need it and your enemies will not believe you anyway.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
