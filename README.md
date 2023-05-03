@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never explain - your friends do not need it and your enemies will not believe you anyway.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>We should all be thankful for those people who rekindle the inner spirit.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
