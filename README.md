@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Real magic in relationships means an absence of judgement of others.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>In order to win, you must expect to win.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
