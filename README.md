@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Avoid having your ego so close to your position that when your position falls, your ego goes with it.</i><br><i>– Colin Powell.</i><br></p>
+<p align="center"><br><i>Almost everything comes from nothing.</i><br><i>– Henri-Frédéric Amiel.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
