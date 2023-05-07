@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technology is teaching us to be human again.</i><br><i>– Simon Mainwaring.</i><br></p>
+<p align="center"><br><i>Everything you are against weakens you. Everything you are for empowers you.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
