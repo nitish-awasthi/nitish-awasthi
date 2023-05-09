@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know, first, who you are, and then adorn yourself accordingly.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>Love is rarer than genius itself. And friendship is rarer than love.</i><br><i>– Charles Péguy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
