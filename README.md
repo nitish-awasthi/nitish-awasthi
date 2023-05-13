@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Know how to listen, and you will profit even from those who talk badly.</i><br><i>– Plutarch.</i><br></p>
+<p align="center"><br><i>The moment one gives close attention to anything, even a blade of grass, it becomes a mysterious, awesome, indescribably magnificent world in itself.</i><br><i>– Henry Miller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
