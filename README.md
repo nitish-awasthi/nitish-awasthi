@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship often ends in love, but love in friendship - never.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Gold medals aren't really made of gold. They're made of sweat, determination, and a hard-to-find alloy called guts.</i><br><i>– Dan Gable.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
