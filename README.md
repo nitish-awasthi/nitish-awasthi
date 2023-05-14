@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust yourself. You know more than you think you do.</i><br><i>– Benjamin Spock.</i><br></p>
+<p align="center"><br><i>Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
