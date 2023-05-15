@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Technological progress has merely provided us with more efficient means for going backwards.</i><br><i>– Aldous Huxley.</i><br></p>
+<p align="center"><br><i>Thought is the blossom; language the bud; action the fruit behind it.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
