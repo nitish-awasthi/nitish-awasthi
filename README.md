@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Mountains cannot be surmounted except by winding paths.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity.</i><br><i>– William C. Menninger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
