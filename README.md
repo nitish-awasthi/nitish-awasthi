@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Can you imagine what I would do if I could do all I can?</i><br><i>– Sun Tzu.</i><br></p>
+<p align="center"><br><i>I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
