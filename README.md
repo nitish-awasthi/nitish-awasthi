@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust your hunches. They're usually based on facts filed away just below the conscious level.</i><br><i>– Joyce Brothers.</i><br></p>
+<p align="center"><br><i>Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.</i><br><i>– Edith Wharton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
