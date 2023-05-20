@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.</i><br><i>– Washington Irving.</i><br></p>
+<p align="center"><br><i>Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.</i><br><i>– Don Miguel Ruiz.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
