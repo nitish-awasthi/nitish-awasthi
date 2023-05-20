@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Aim for the moon. If you miss, you may hit a star.</i><br><i>– W. Clement Stone.</i><br></p>
+<p align="center"><br><i>Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.</i><br><i>– Washington Irving.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
