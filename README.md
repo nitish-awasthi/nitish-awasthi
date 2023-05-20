@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything has beauty, but not everyone sees it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Aim for the moon. If you miss, you may hit a star.</i><br><i>– W. Clement Stone.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
