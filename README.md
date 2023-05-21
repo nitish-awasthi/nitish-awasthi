@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>True friendship is like sound health; the value of it is seldom known until it is lost.</i><br><i>– Charles Caleb Colton.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
