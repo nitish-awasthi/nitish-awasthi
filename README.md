@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friends stab you in the front.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.</i><br><i>– William C. Menninger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
