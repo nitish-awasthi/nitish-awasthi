@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nine-tenths of wisdom is being wise in time.</i><br><i>– Theodore Roosevelt.</i><br></p>
+<p align="center"><br><i>Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
