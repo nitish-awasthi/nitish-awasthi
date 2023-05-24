@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Just because something doesn't do what you planned it to do doesn't mean it's useless.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
