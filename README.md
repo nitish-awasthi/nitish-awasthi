@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What happens is not as important as how you react to what happens.</i><br><i>– Ellen Glasgow.</i><br></p>
+<p align="center"><br><i>One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
