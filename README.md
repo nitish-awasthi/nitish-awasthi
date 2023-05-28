@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>A man cannot be said to succeed in this life who does not satisfy one friend.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
