@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change your thoughts and you change your world.</i><br><i>– Norman Vincent Peale.</i><br></p>
+<p align="center"><br><i>When you come to the end of your rope, tie a knot and hang on.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
