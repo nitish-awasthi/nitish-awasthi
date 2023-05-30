@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never worry about action, but only inaction.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Strength does not come from physical capacity. It comes from an indomitable will.</i><br><i>– Mahatma Gandhi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
