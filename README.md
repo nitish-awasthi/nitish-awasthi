@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You know you're in love when you can't fall asleep because reality is finally better than your dreams.</i><br><i>– Dr. Seuss.</i><br></p>
+<p align="center"><br><i>Miracles come in moments. Be ready and willing.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
