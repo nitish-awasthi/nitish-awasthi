@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best way to predict your future is to create it.</i><br><i>– Peter Drucker.</i><br></p>
+<p align="center"><br><i>We should all be thankful for those people who rekindle the inner spirit.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
