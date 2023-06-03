@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We should all be thankful for those people who rekindle the inner spirit.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>The meaning I picked, the one that changed my life: Overcome fear, behold wonder.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
