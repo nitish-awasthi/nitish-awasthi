@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Either you run the day or the day runs you.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>You can stand tall without standing on someone. You can be a victor without having victims.</i><br><i>– Harriet Woods.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
