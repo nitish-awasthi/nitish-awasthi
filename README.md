@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship needs no words - it is solitude delivered from the anguish of loneliness.</i><br><i>– Dag Hammarskjöld.</i><br></p>
+<p align="center"><br><i>I can, therefore I am.</i><br><i>– Simone Weil.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
