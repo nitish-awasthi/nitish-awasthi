@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You got to be careful if you don't know where you're going, because you might not get there.</i><br><i>– Yogi Berra.</i><br></p>
+<p align="center"><br><i>All the great performers I have worked with are fueled by a personal dream.</i><br><i>– John Eliot.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
