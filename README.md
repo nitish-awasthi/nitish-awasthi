@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who dare to fail miserably can achieve greatly.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Subdue your appetites, my dears, and you've conquered human nature.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
