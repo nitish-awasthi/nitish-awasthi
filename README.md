@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
+<p align="center"><br><i>What happens is not as important as how you react to what happens.</i><br><i>– Ellen Glasgow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
