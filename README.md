@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.</i><br><i>– Arthur Rubinstein.</i><br></p>
+<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
