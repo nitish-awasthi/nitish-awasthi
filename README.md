@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The price of greatness is responsibility.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>It is not wisdom but Authority that makes a law.</i><br><i>– Thomas Hobbes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
