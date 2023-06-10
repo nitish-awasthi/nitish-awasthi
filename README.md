@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not wisdom but Authority that makes a law.</i><br><i>– Thomas Hobbes.</i><br></p>
+<p align="center"><br><i>Wrinkles should merely indicate where smiles have been.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
