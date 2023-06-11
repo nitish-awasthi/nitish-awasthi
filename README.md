@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is the wisdom of the fool and the folly of the wise.</i><br><i>– Samuel Johnson.</i><br></p>
+<p align="center"><br><i>Experience is simply the name we give our mistakes.</i><br><i>– Oscar Wilde.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
