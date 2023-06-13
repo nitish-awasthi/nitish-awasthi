@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To command is to serve, nothing more and nothing less.</i><br><i>– André Malraux.</i><br></p>
+<p align="center"><br><i>Never apologize for showing feelings. When you do so, you apologize for the truth.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
