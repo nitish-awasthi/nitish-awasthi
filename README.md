@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
