@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change in all things is sweet.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Motivation is the art of getting people to do what you want them to do because they want to do it.</i><br><i>– Dwight D. Eisenhower.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
