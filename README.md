@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
+<p align="center"><br><i>A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.</i><br><i>– Isaac Asimov.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
