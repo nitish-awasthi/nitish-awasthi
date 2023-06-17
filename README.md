@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.</i><br><i>– Robert Louis Stevenson.</i><br></p>
+<p align="center"><br><i>We are all something, but none of us are everything.</i><br><i>– Blaise Pascal.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
