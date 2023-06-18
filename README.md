@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The art challenges the technology, and the technology inspires the art.</i><br><i>– John Lasseter.</i><br></p>
+<p align="center"><br><i>What wisdom can you find that is greater than kindness?</i><br><i>– Jean-Jacques Rousseau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
