@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We cannot solve our problems with the same thinking we used when we created them.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
