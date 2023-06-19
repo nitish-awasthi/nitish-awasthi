@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Change your life today. Don't gamble on the future, act now, without delay.</i><br><i>– Simone de Beauvoir.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
