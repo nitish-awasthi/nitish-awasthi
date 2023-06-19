@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change your life today. Don't gamble on the future, act now, without delay.</i><br><i>– Simone de Beauvoir.</i><br></p>
+<p align="center"><br><i>Before we acquire great power, we must acquire wisdom to use it well.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
