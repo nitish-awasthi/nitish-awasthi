@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Before we acquire great power, we must acquire wisdom to use it well.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Your talent is God's gift to you. What you do with it is your gift back to God.</i><br><i>– Leo Buscaglia.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
