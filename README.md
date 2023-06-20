@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is only one happiness in life, to love and be loved.</i><br><i>– George Sand.</i><br></p>
+<p align="center"><br><i>Remember that sometimes not getting what you want is a wonderful stroke of luck.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
