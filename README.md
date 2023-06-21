@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Remember that sometimes not getting what you want is a wonderful stroke of luck.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Just trust yourself, then you will know how to live.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
