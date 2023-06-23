@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change your life today. Don't gamble on the future, act now, without delay.</i><br><i>– Simone de Beauvoir.</i><br></p>
+<p align="center"><br><i>It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.</i><br><i>– Charles Kingsley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
