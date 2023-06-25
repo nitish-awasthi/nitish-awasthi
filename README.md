@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Reason and free inquiry are the only effectual agents against error.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.</i><br><i>– Hermann Hesse.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
