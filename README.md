@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We cannot be more sensitive to pleasure without being more sensitive to pain.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>Eternal nothingness is fine if you happen to be dressed for it.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
