@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Today you are you! That is truer than true! There is no one alive who is you-er than you!</i><br><i>– Dr. Seuss.</i><br></p>
+<p align="center"><br><i>Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
