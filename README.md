@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We could never learn to be brave and patient if there were only joy in the world.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>If you spend too much time thinking about a thing, you'll never get it done.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
