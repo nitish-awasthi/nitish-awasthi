@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
