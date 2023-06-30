@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You've got to go out on a limb sometimes because that's where the fruit is.</i><br><i>– Will Rogers.</i><br></p>
+<p align="center"><br><i>The past has no power to stop you from being present now. Only your grievance about the past can do that.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
