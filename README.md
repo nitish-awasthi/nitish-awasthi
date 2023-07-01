@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life's most persistent and urgent question is, 'What are you doing for others?'</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.</i><br><i>– William C. Menninger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
