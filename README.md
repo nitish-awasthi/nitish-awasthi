@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Goals are the fuel in the furnace of achievement.</i><br><i>– Brian Tracy.</i><br></p>
+<p align="center"><br><i>Nothing diminishes anxiety faster than action.</i><br><i>– Walter Inglis Anderson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
