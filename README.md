@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others?</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Truth is generally the best vindication against slander.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
