@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Autumn is a second spring when every leaf is a flower.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>He is no fool who gives what he cannot keep to gain what he cannot lose.</i><br><i>– Jim Elliot.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
