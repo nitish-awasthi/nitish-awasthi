@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.</i><br><i>– Anne Brontë.</i><br></p>
+<p align="center"><br><i>Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
