@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Any sufficiently advanced technology is equivalent to magic.</i><br><i>– Arthur C. Clarke.</i><br></p>
+<p align="center"><br><i>Technology… the knack of so arranging the world that we don't have to experience it.</i><br><i>– Max Frisch.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
