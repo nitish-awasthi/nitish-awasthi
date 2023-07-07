@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
