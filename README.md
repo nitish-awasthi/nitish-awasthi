@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature gave us one tongue and two ears so we could hear twice as much as we speak.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>The smaller the mind the greater the conceit.</i><br><i>– Aesop.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
