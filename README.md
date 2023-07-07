@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.</i><br><i>– Nelson Mandela.</i><br></p>
+<p align="center"><br><i>What is necessary to change a person is to change his awareness of himself.</i><br><i>– Abraham Maslow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
