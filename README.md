@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is necessary to change a person is to change his awareness of himself.</i><br><i>– Abraham Maslow.</i><br></p>
+<p align="center"><br><i>Be here now. Be someplace else later. Is that so complicated?</i><br><i>– David Bader.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
