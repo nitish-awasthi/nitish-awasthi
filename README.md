@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest healing therapy is friendship and love.</i><br><i>– Hubert Humphrey.</i><br></p>
+<p align="center"><br><i>Experience is not what happens to a man. It is what a man does with what happens to him.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
