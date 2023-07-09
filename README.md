@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you only have a hammer, you tend to see every problem as a nail.</i><br><i>– Abraham Maslow.</i><br></p>
+<p align="center"><br><i>Start with what is right rather than what is acceptable.</i><br><i>– Franz Kafka.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
