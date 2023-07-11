@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is essentially a partnership.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.</i><br><i>– Brian O'Driscoll.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
