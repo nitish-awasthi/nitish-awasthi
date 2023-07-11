@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.</i><br><i>– Brian O'Driscoll.</i><br></p>
+<p align="center"><br><i>You cannot find yourself by going into the past. You can find yourself by coming into the present.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
