@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest way to live with honor in this world is to be what we pretend to be.</i><br><i>– Socrates.</i><br></p>
+<p align="center"><br><i>Friendship is essentially a partnership.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
