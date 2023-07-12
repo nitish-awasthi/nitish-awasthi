@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is the only force capable of transforming an enemy into a friend.</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>I want my friend to miss me as long as I miss him.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
