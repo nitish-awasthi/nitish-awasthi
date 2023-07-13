@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Maxim for life: You get treated in life the way you teach people to treat you.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
