@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>They say that time changes things, but you actually have to change them yourself.</i><br><i>– Andy Warhol.</i><br></p>
+<p align="center"><br><i>In action a great heart is the chief qualification. In work, a great head.</i><br><i>– Arthur Schopenhauer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
