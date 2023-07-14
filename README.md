@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Maxim for life: You get treated in life the way you teach people to treat you.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Wisdom consists of the anticipation of consequences.</i><br><i>– Norman Cousins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
