@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You were not born a winner, and you were not born a loser. You are what you make yourself be.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>Fear not for the future, weep not for the past.</i><br><i>– Percy Bysshe Shelley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
