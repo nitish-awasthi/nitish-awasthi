@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fear not for the future, weep not for the past.</i><br><i>– Percy Bysshe Shelley.</i><br></p>
+<p align="center"><br><i>We shall never know all the good that a simple smile can do.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
