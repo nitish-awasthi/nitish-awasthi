@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The differences between friends cannot but reinforce their friendship.</i><br><i>– Mao Zedong.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
