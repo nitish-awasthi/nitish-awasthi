@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Make the most of yourself, for that is all there is of you.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Knowledge without justice ought to be called cunning rather than wisdom.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
