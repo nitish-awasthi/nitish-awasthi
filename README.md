@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>They must often change, who would be constant in happiness or wisdom.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.</i><br><i>– William Saroyan.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
