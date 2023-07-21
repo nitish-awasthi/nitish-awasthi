@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do you know what my favorite part of the game is? The opportunity to play.</i><br><i>– Mike Singletary (basketball).</i><br></p>
+<p align="center"><br><i>If you would take, you must first give, this is the beginning of intelligence.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
