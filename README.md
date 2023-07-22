@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Be faithful in small things because it is in them that your strength lies.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
