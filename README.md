@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Purity and impurity depend on oneself; no one can purify another.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Better be wise by the misfortunes of others than by your own.</i><br><i>– Aesop.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
