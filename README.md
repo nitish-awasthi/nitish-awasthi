@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.</i><br><i>– Don DeLillo.</i><br></p>
+<p align="center"><br><i>Love and compassion open our own inner life, reducing stress, distrust and loneliness.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
