@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love and compassion open our own inner life, reducing stress, distrust and loneliness.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.</i><br><i>– Vince Lombardi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
