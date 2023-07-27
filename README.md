@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your friend is your needs answered.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.</i><br><i>– George Santayana.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
