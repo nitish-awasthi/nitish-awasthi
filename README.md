@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are wiser than we know.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Let us always meet each other with smile, for the smile is the beginning of love.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
