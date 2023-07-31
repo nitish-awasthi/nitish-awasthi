@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>The way a team plays as a whole determines its success. You may have the greatest bunch of individual stars in the world, but if they don't play together, the club won't be worth a dime.</i><br><i>– Babe Ruth.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
