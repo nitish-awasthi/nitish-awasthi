@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The person who lives life fully, glowing with life's energy, is the person who lives a successful life.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>Life is like a sewer. What you get out of it depends on what you put into it.</i><br><i>– Tom Lehrer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
