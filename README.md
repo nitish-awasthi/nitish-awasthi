@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Genius is one percent inspiration and ninety-nine percent perspiration.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>To avoid criticism, do nothing, say nothing, be nothing.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
