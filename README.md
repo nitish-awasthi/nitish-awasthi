@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let your hook always be cast; in the pool where you least expect it, there will be a fish.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>Things that were hard to bear are sweet to remember.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
