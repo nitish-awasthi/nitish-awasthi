@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To avoid criticism, do nothing, say nothing, be nothing.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Let your hook always be cast; in the pool where you least expect it, there will be a fish.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
