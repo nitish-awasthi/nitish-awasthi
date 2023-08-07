@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.</i><br><i>– Henry Miller.</i><br></p>
+<p align="center"><br><i>Our greatest glory is not in never falling, but in rising every time we fall.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
