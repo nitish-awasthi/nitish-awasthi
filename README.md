@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Learning is finding out what you already know.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.</i><br><i>– Muhammad Ali.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
