@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Three things cannot be long hidden: the sun, the moon, and the truth.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.</i><br><i>– Stephen Hawking.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
