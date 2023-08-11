@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.</i><br><i>– Stephen Hawking.</i><br></p>
+<p align="center"><br><i>What we see depends mainly on what we look for.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
