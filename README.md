@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.</i><br><i>– H. Jackson Brown Jr..</i><br></p>
+<p align="center"><br><i>Three things cannot be long hidden: the sun, the moon, and the truth.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
