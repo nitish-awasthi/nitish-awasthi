@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never do things others can do and will do, if there are things others cannot do or will not do.</i><br><i>– Amelia Earhart.</i><br></p>
+<p align="center"><br><i>There is only one success: to be able to spend your life in your own way.</i><br><i>– Christopher Morley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
