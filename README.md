@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is only one success: to be able to spend your life in your own way.</i><br><i>– Christopher Morley.</i><br></p>
+<p align="center"><br><i>If you're going through hell, keep going.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
