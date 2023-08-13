@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A goal without a plan is just a wish.</i><br><i>– Larry Elder.</i><br></p>
+<p align="center"><br><i>No one can make you feel inferior without your consent.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
