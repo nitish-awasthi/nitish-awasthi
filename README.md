@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is divided into the horrible and the miserable.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>A goal without a plan is just a wish.</i><br><i>– Larry Elder.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
