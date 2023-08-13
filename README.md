@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Who sows virtue reaps honor.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Life is divided into the horrible and the miserable.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
