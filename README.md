@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.</i><br><i>– John Adams.</i><br></p>
+<p align="center"><br><i>There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
