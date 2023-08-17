@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never think of the future - it comes soon enough.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.</i><br><i>– Bernard Shaw.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
