@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.</i><br><i>– Henry James.</i><br></p>
+<p align="center"><br><i>Set your goals high, and don't stop till you get there.</i><br><i>– Bo Jackson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
