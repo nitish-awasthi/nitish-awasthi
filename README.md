@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.</i><br><i>– Bernard Shaw.</i><br></p>
+<p align="center"><br><i>Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.</i><br><i>– Henry James.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
