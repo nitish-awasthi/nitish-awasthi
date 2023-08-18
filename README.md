@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Set your goals high, and don't stop till you get there.</i><br><i>– Bo Jackson.</i><br></p>
+<p align="center"><br><i>Read as you taste fruit or savor wine, or enjoy friendship, love or life.</i><br><i>– George Herbert.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
