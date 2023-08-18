@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are masters of the unsaid words, but slaves of those we let slip out.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well.</i><br><i>– Jeff Bezos.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
