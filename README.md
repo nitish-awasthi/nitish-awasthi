@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Read as you taste fruit or savor wine, or enjoy friendship, love or life.</i><br><i>– George Herbert.</i><br></p>
+<p align="center"><br><i>We are masters of the unsaid words, but slaves of those we let slip out.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
