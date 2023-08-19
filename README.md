@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our most intimate friend is not he to whom we show the worst, but the best of our nature.</i><br><i>– Nathaniel Hawthorne.</i><br></p>
+<p align="center"><br><i>Time is the wisest counsellor of all.</i><br><i>– Pericles.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
