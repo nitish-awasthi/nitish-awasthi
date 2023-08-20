@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We lost because we told ourselves we lost.</i><br><i>– Leo Tolstoy.</i><br></p>
+<p align="center"><br><i>There is nothing on this earth more to be prized than true friendship.</i><br><i>– Thomas Aquinas.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
