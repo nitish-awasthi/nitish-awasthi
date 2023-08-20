@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Walking with a friend in the dark is better than walking alone in the light.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.</i><br><i>– Amy Tan.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
