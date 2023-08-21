@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is more shameful to distrust our friends than to be deceived by them.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>A friend is someone who gives you total freedom to be yourself.</i><br><i>– Jim Morrison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
