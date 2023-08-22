@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend is someone who gives you total freedom to be yourself.</i><br><i>– Jim Morrison.</i><br></p>
+<p align="center"><br><i>Don't look back. Something might be gaining on you.</i><br><i>– Satchel Paige.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
