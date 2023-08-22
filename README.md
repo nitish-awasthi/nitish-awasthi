@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Good advice is always certain to be ignored, but that's no reason not to give it.</i><br><i>– Agatha Christie.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
