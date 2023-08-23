@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All serious daring starts from within.</i><br><i>– Harriet Beecher Stowe.</i><br></p>
+<p align="center"><br><i>True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.</i><br><i>– Joseph Addison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
