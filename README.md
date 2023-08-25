@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man is free who is not master of himself.</i><br><i>– Epictetus.</i><br></p>
+<p align="center"><br><i>May all beings have happy minds.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
