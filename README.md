@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never accept ultimatums, conventional wisdom, or absolutes.</i><br><i>– Christopher Reeve.</i><br></p>
+<p align="center"><br><i>Faith in oneself is the best and safest course.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
