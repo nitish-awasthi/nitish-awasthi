@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When we seek to discover the best in others, we somehow bring out the best in ourselves.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
