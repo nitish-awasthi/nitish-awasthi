@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When we seek to discover the best in others, we somehow bring out the best in ourselves.</i><br><i>– William Arthur Ward.</i><br></p>
+<p align="center"><br><i>We make a living by what we get, but we make a life by what we give.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
