@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do all things with love.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Any sufficiently advanced technology is equivalent to magic.</i><br><i>– Arthur C. Clarke.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
