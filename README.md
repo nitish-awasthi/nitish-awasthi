@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The beginning of knowledge is the discovery of something we do not understand.</i><br><i>– Frank Herbert.</i><br></p>
+<p align="center"><br><i>One may say the eternal mystery of the world is its comprehensibility.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
