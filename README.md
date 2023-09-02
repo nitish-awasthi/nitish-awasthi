@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The shoe that fits one person pinches another; there is no recipe for living that suits all cases.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Dreams come true. Without that possibility, nature would not incite us to have them.</i><br><i>– John Updike.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
