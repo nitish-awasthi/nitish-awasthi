@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you don't know where you are going, any road will get you there.</i><br><i>– Lewis Carroll.</i><br></p>
+<p align="center"><br><i>If we all did the things we are capable of doing, we would literally astound ourselves.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
