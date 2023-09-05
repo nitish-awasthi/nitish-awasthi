@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is with our passions, as it is with fire and water, they are good servants but bad masters.</i><br><i>– Aesop.</i><br></p>
+<p align="center"><br><i>Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.</i><br><i>– Henry Wadsworth Longfellow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
