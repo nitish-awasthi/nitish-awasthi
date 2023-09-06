@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When in doubt, don't.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>He that is giddy thinks the world turns round.</i><br><i>– William Shakespeare.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
