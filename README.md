@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He that is giddy thinks the world turns round.</i><br><i>– William Shakespeare.</i><br></p>
+<p align="center"><br><i>Let none find fault with others; let none see the omissions and commissions of others. But let one see one's own acts, done and undone.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
