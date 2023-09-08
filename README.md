@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.</i><br><i>– Elbert Hubbard.</i><br></p>
+<p align="center"><br><i>Meaning is not what you start with but what you end up with.</i><br><i>– Peter Elbow.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
