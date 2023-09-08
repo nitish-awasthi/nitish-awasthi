@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday I dared to struggle. Today I dare to win.</i><br><i>– Bernadette Devlin.</i><br></p>
+<p align="center"><br><i>There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.</i><br><i>– Alfred Korzybski.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
