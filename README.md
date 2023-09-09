@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>And the attitude of faith is the very opposite of clinging to belief, of holding on.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
