@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The key to growth is the introduction of higher dimensions of consciousness into our awareness.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Our strength grows out of our weaknesses.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
