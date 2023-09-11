@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>The longer we dwell on our misfortunes, the greater is their power to harm us.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
