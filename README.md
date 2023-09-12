@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our strength grows out of our weaknesses.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Don't talk about what you have done or what you are going to do.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
