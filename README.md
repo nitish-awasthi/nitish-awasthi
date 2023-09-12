@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.</i><br><i>– John F. Kennedy.</i><br></p>
+<p align="center"><br><i>Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
