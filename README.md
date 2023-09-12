@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Don't talk about what you have done or what you are going to do.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>There is no failure except in no longer trying.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
