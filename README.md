@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A thing well said will be wit in all languages.</i><br><i>– John Dryden.</i><br></p>
+<p align="center"><br><i>Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
