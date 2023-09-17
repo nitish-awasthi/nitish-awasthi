@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>Believe deep down in your heart that you're destined to do great things.</i><br><i>– Joe Paterno.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
