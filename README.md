@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Believe deep down in your heart that you're destined to do great things.</i><br><i>– Joe Paterno.</i><br></p>
+<p align="center"><br><i>Don't settle for a relationship that won't let you be yourself.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
