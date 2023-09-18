@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everything that irritates us about others can lead us to an understanding of ourselves.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.</i><br><i>– Audre Lorde.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
