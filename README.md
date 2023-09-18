@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only journey is the one within.</i><br><i>– Rainer Maria Rilke.</i><br></p>
+<p align="center"><br><i>The best cure for the body is a quiet mind.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
