@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Whenever you find yourself on the side of the majority, it is time to pause and reflect.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
