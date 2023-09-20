@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.</i><br><i>– Margaret Mead.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
