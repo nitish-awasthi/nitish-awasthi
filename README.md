@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Hell, there are no rules here-- we're trying to accomplish something.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.</i><br><i>– Stewart Brand.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
