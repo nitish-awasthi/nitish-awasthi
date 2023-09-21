@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fine words and an insinuating appearance are seldom associated with true virtue</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
