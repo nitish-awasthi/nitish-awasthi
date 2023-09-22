@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only real valuable thing is intuition.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Technology has to be invented or adopted.</i><br><i>– Jared Diamond.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
