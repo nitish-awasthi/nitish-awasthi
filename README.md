@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.</i><br><i>– A. A. Milne.</i><br></p>
+<p align="center"><br><i>Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.</i><br><i>– Marilyn Monroe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
