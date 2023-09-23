@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present.</i><br><i>– Joan Rivers.</i><br></p>
+<p align="center"><br><i>If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.</i><br><i>– A. A. Milne.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
