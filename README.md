@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You always succeed in producing a result.</i><br><i>– Tony Robbins.</i><br></p>
+<p align="center"><br><i>Humanity is acquiring all the right technology for all the wrong reasons.</i><br><i>– Buckminster Fuller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
