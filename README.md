@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are all faced with a series of great opportunities brilliantly disguised as impossible situations.</i><br><i>– Chuck Swindoll.</i><br></p>
+<p align="center"><br><i>A friend in power is a friend lost.</i><br><i>– Henry Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
