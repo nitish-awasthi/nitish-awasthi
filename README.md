@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is better to understand a little than to misunderstand a lot.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.</i><br><i>– Mary Pickford.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
