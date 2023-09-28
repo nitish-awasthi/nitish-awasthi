@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.</i><br><i>– Jawaharlal Nehru.</i><br></p>
+<p align="center"><br><i>Sooner or later, those who win are those who think they can.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
