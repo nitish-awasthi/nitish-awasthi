@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Keep your face always toward the sunshine - and shadows will fall behind you.</i><br><i>– Walt Whitman.</i><br></p>
+<p align="center"><br><i>There is a wisdom of the head, and a wisdom of the heart.</i><br><i>– Charles Dickens.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
