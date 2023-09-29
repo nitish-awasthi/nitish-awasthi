@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Computers are like bikinis. They save people a lot of guesswork.</i><br><i>– Sam Ewing.</i><br></p>
+<p align="center"><br><i>Keep your face always toward the sunshine - and shadows will fall behind you.</i><br><i>– Walt Whitman.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
