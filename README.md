@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.</i><br><i>– Dale Turner.</i><br></p>
+<p align="center"><br><i>Imagination will often carry us to worlds that never were. But without it we go nowhere.</i><br><i>– Carl Sagan.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
