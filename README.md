@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Imagination will often carry us to worlds that never were. But without it we go nowhere.</i><br><i>– Carl Sagan.</i><br></p>
+<p align="center"><br><i>Dost thou love life? Then do not squander time, for that is the stuff life is made of.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
