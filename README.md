@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be kind whenever possible. It is always possible.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>The World is my country, all mankind are my brethren, and to do good is my religion.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
