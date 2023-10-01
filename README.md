@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Truth is generally the best vindication against slander.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.</i><br><i>– Amy Bloom.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
