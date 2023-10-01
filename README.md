@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.</i><br><i>– Amy Bloom.</i><br></p>
+<p align="center"><br><i>As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer.</i><br><i>– James Gleick.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
