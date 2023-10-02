@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We cannot solve our problems with the same thinking we used when we created them.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
