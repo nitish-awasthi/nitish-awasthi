@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>For everything that lives is holy, life delights in life.</i><br><i>– William Blake.</i><br></p>
+<p align="center"><br><i>Sports do not build character. They reveal it.</i><br><i>– Heywood Broun.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
