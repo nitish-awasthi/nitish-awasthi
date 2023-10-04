@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.</i><br><i>– Susan Orlean.</i><br></p>
+<p align="center"><br><i>First we thought the PC was a calculator. Then we found out how to turn numbers into letters with ASCII — and we thought it was a typewriter. Then we discovered graphics, and we thought it was a television. With the World Wide Web, we've realized it's a brochure.</i><br><i>– Douglas Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
