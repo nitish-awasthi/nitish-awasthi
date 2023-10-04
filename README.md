@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Autumn is a second spring when every leaf is a flower.</i><br><i>– Albert Camus.</i><br></p>
+<p align="center"><br><i>Read as you taste fruit or savor wine, or enjoy friendship, love or life.</i><br><i>– George Herbert.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
