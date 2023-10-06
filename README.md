@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing is not enough; we must apply!</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Obstacles are those frightful things you see when you take your eyes off your goal.</i><br><i>– Henry Ford.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
