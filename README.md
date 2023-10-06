@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature takes away any faculty that is not used.</i><br><i>– William Inge.</i><br></p>
+<p align="center"><br><i>Knowing is not enough; we must apply!</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
