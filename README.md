@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Without some goals and some efforts to reach it, no man can live.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>Loss is nothing else but change, and change is Nature's delight.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
