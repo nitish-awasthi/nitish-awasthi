@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No one has ever become poor by giving.</i><br><i>– Anne Frank.</i><br></p>
+<p align="center"><br><i>I never worry about action, but only inaction.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
