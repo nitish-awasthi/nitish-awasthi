@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I never worry about action, but only inaction.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>A day of worry is more exhausting than a day of work.</i><br><i>– John Lubbock.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
