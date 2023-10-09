@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Finding good players is easy. Getting them to play as a team is another story.</i><br><i>– Casey Stengel.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
