@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Finding good players is easy. Getting them to play as a team is another story.</i><br><i>– Casey Stengel.</i><br></p>
+<p align="center"><br><i>Love is a serious mental disease.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
