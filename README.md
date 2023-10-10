@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Change your life today. Don't gamble on the future, act now, without delay.</i><br><i>– Simone de Beauvoir.</i><br></p>
+<p align="center"><br><i>Those who cling to perceptions and views wander the world offending people.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
