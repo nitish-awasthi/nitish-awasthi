@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Those who cling to perceptions and views wander the world offending people.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.</i><br><i>– Alexis Carrel.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
