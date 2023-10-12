@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never reach out your hand unless you're willing to extend an arm.</i><br><i>– Pope Paul VI.</i><br></p>
+<p align="center"><br><i>Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.</i><br><i>– Henry van Dyke Jr..</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
