@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have always found that mercy bears richer fruits than strict justice.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Never reach out your hand unless you're willing to extend an arm.</i><br><i>– Pope Paul VI.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
