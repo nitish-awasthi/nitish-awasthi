@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>I have always found that mercy bears richer fruits than strict justice.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
