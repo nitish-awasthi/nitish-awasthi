@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.</i><br><i>– William James.</i><br></p>
+<p align="center"><br><i>If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.</i><br><i>– Vusi Mahlasela.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
