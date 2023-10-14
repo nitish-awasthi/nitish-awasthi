@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the neglect of timely repair that makes rebuilding necessary.</i><br><i>– Richard Whately.</i><br></p>
+<p align="center"><br><i>Wrinkles should merely indicate where smiles have been.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
