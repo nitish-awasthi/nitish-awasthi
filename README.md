@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wrinkles should merely indicate where smiles have been.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>Smile, breathe and go slowly.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
