@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nothing but heaven itself is better than a friend who is really a friend.</i><br><i>– Plautus.</i><br></p>
+<p align="center"><br><i>I never see what has been done; I only see what remains to be done.</i><br><i>– Marie Curie.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
