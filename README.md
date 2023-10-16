@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A friend to all is a friend to none.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>I don't believe in failure. It's not failure if you enjoyed the process.</i><br><i>– Oprah Winfrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
