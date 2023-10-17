@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>But the attitude of faith is to let go, and become open to truth, whatever it might turn out to be.</i><br><i>– Alan Watts.</i><br></p>
+<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
