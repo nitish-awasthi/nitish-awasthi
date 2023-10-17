@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>See the positive side, the potential, and make an effort.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>A friend in power is a friend lost.</i><br><i>– Henry Adams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
