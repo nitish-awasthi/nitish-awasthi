@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every man takes the limits of his own field of vision for the limits of the world.</i><br><i>– Arthur Schopenhauer.</i><br></p>
+<p align="center"><br><i>Love isn't something you find. Love is something that finds you.</i><br><i>– Loretta Young.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
