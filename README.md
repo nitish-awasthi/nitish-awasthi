@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wrong is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Every man takes the limits of his own field of vision for the limits of the world.</i><br><i>– Arthur Schopenhauer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
