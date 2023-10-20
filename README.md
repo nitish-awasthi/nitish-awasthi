@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It has long been an axiom of mine that the little things are infinitely the most important.</i><br><i>– Arthur Conan Doyle.</i><br></p>
+<p align="center"><br><i>Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
