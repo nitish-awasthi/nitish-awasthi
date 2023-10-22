@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When one tugs at a single thing in nature, he finds it attached to the rest of the world.</i><br><i>– John Muir.</i><br></p>
+<p align="center"><br><i>You are the only person on earth who can use your ability.</i><br><i>– Zig Ziglar.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
