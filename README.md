@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You are the only person on earth who can use your ability.</i><br><i>– Zig Ziglar.</i><br></p>
+<p align="center"><br><i>Do more than dream: work.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
