@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The cause is hidden. The effect is visible to all.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the universe.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
