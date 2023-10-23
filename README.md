@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I love you the more in that I believe you had liked me for my own sake and for nothing else.</i><br><i>– John Keats.</i><br></p>
+<p align="center"><br><i>The cause is hidden. The effect is visible to all.</i><br><i>– Ovid.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
