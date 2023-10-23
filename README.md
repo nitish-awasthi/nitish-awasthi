@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He who lives in harmony with himself lives in harmony with the universe.</i><br><i>– Marcus Aurelius.</i><br></p>
+<p align="center"><br><i>The thoughts we choose to think are the tools we use to paint the canvas of our lives.</i><br><i>– Louise Hay.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
