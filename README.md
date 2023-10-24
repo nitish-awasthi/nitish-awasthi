@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's not what you look at that matters, it's what you see.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>No man can succeed in a line of endeavor which he does not like.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
