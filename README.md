@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The bird of paradise alights only upon the hand that does not grasp.</i><br><i>– John Berry.</i><br></p>
+<p align="center"><br><i>You must welcome change as the rule but not as your ruler.</i><br><i>– Denis Waitley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
