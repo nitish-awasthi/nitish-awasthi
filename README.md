@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man can succeed in a line of endeavor which he does not like.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>The bird of paradise alights only upon the hand that does not grasp.</i><br><i>– John Berry.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
