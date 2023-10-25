@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ardently do today what must be done. Who knows? Tomorrow, death comes.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Inspiration exists, but it has to find us working.</i><br><i>– Pablo Picasso.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
