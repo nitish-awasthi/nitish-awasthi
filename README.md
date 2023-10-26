@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Inspiration exists, but it has to find us working.</i><br><i>– Pablo Picasso.</i><br></p>
+<p align="center"><br><i>When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
