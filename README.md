@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>A creative man is motivated by the desire to achieve, not by the desire to beat others.</i><br><i>– Ayn Rand.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
