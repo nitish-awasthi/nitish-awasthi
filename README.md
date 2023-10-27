@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To change one's life, start immediately, do it flamboyantly, no exceptions.</i><br><i>– William James.</i><br></p>
+<p align="center"><br><i>Education is the most powerful weapon which you can use to change the world.</i><br><i>– Nelson Mandela.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
