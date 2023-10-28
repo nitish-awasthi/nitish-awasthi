@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live.</i><br><i>– Bertrand Russell.</i><br></p>
+<p align="center"><br><i>I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
