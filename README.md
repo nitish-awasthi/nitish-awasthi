@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In wartime, truth is so precious that she should always be attended by a bodyguard of lies.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>Miracles come in moments. Be ready and willing.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
