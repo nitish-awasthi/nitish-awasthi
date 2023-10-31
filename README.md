@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you judge another, you do not define them, you define yourself.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Freedom is what you do with what's been done to you.</i><br><i>– Jean-Paul Sartre.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
