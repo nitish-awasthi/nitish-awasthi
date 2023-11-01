@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most complicated achievements of thought are possible without the assistance of consciousness.</i><br><i>– Sigmund Freud.</i><br></p>
+<p align="center"><br><i>All truths are easy to understand once they are discovered; the point is to discover them.</i><br><i>– Galileo Galilei.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
