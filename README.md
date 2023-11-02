@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To be wronged is nothing unless you continue to remember it.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>To accomplish great things, we must dream as well as act.</i><br><i>– Anatole France.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
