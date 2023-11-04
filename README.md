@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.</i><br><i>– William Ellery Channing.</i><br></p>
+<p align="center"><br><i>Ideas are the beginning points of all fortunes.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
