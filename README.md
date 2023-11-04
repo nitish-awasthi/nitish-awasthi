@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ideas are the beginning points of all fortunes.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
