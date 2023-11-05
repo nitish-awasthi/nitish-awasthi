@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I don't believe you have to be better than everybody else. I believe you have to be better than you ever thought you could be.</i><br><i>– Ken Venturi.</i><br></p>
+<p align="center"><br><i>With the new day comes new strength and new thoughts.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
