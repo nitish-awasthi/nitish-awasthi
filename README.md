@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.</i><br><i>– Eustace Budgell.</i><br></p>
+<p align="center"><br><i>All know the way; few actually walk it.</i><br><i>– Bodhidharma.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
