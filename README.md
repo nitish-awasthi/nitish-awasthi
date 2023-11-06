@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All know the way; few actually walk it.</i><br><i>– Bodhidharma.</i><br></p>
+<p align="center"><br><i>Better than a thousand useless words is one useful word, upon hearing which one attains peace.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
