@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>With the new day comes new strength and new thoughts.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Fine words and an insinuating appearance are seldom associated with true virtue</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
