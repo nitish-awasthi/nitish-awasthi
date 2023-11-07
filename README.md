@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better than a thousand useless words is one useful word, upon hearing which one attains peace.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>As a cure for worrying, work is better than whisky.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
