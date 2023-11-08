@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man has a good enough memory to be a successful liar.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Wise men speak because they have something to say; Fools because they have to say something.</i><br><i>– Plato.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
