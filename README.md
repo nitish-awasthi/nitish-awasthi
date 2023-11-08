@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men speak because they have something to say; Fools because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Waste no more time arguing about what a good man should be. Be one.</i><br><i>– Marcus Aurelius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
