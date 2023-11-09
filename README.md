@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.</i><br><i>– Niccolò Machiavelli.</i><br></p>
+<p align="center"><br><i>Correction does much, but encouragement does more.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
