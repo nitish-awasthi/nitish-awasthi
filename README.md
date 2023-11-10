@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Nature takes away any faculty that is not used.</i><br><i>– William Inge.</i><br></p>
+<p align="center"><br><i>Any sufficiently advanced technology is equivalent to magic.</i><br><i>– Arthur C. Clarke.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
