@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Go put your creed into the deed. Nor speak with double tongue.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>The key is to keep company only with people who uplift you, whose presence calls forth your best.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
