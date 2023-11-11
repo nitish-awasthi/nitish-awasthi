@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Any sufficiently advanced technology is equivalent to magic.</i><br><i>– Arthur C. Clarke.</i><br></p>
+<p align="center"><br><i>Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
