@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is not one big cosmic meaning for all, there is only the meaning we each give to our life.</i><br><i>– Anaïs Nin.</i><br></p>
+<p align="center"><br><i>Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
