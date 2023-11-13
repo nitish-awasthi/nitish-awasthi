@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Never mistake activity for achievement.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
