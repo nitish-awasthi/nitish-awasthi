@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man acts before he speaks, and afterwards speaks according to his action.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>No alibi will save you from accepting the responsibility.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
