@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>The superior man acts before he speaks, and afterwards speaks according to his action.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
