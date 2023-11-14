@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is what happens while you are making other plans.</i><br><i>– John Lennon.</i><br></p>
+<p align="center"><br><i>Error is discipline through which we advance.</i><br><i>– William Ellery Channing.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
