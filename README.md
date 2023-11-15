@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When you come to the end of your rope, tie a knot and hang on.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
+<p align="center"><br><i>Don't turn away from possible futures before you're certain you don't have anything to learn from them.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
