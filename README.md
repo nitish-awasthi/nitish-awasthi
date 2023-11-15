@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A man's growth is seen in the successive choirs of his friends</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
