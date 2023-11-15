@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.</i><br><i>– Thomas Carlyle.</i><br></p>
+<p align="center"><br><i>When you come to the end of your rope, tie a knot and hang on.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
