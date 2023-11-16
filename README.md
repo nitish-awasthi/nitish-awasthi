@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Accept the challenges so that you can feel the exhilaration of victory.</i><br><i>– George S. Patton.</i><br></p>
+<p align="center"><br><i>The poor man is not he who is without a cent, but he who is without a dream.</i><br><i>– Harry Kemp.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
