@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we open a quarrel between past and present, we shall find that we have lost the future.</i><br><i>– Winston Churchill.</i><br></p>
+<p align="center"><br><i>The real danger is not that computers will begin to think like men, but that men will begin to think like computers.</i><br><i>– Sydney J. Harris.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
