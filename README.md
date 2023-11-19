@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>In skating over thin ice our safety is in our speed.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>It is not enough to have a good mind; the main thing is to use it well.</i><br><i>– René Descartes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
