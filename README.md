@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.</i><br><i>– Mary Kay Ash.</i><br></p>
+<p align="center"><br><i>Genius unrefined resembles a flash of lightning, but wisdom is like the sun.</i><br><i>– Franz Grillparzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
