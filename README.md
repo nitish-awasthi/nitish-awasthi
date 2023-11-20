@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men talk because they have something to say; fools, because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.</i><br><i>– Mary Kay Ash.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
