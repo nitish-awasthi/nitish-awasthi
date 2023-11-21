@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Kindness is the golden chain by which society is bound together.</i><br><i>– Johann Wolfgang von Goethe.</i><br></p>
+<p align="center"><br><i>Strong beliefs win strong men, and then make them stronger.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
