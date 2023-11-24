@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
