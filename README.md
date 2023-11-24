@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>True friendship ought never to conceal what it thinks.</i><br><i>– Jerome.</i><br></p>
+<p align="center"><br><i>Along with success comes a reputation for wisdom.</i><br><i>– Euripides.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
