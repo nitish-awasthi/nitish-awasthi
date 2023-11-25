@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.</i><br><i>– Voltaire.</i><br></p>
+<p align="center"><br><i>There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.</i><br><i>– Alfred Korzybski.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
