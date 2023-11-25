@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I destroy my enemies when I make them my friends.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>It is a characteristic of wisdom not to do desperate things.</i><br><i>– Henry David Thoreau.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
