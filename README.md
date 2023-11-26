@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Fear makes strangers of people who would be friends.</i><br><i>– Shirley MacLaine.</i><br></p>
+<p align="center"><br><i>Continuous effort - not strength or intelligence - is the key to unlocking our potential.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
