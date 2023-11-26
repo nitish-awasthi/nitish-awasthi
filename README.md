@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is a characteristic of wisdom not to do desperate things.</i><br><i>– Henry David Thoreau.</i><br></p>
+<p align="center"><br><i>Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.</i><br><i>– Harvey Mackay.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
