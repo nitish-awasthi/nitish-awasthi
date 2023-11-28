@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>All action results from thought, so it is thoughts that matter.</i><br><i>– Sai Baba.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
