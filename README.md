@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.</i><br><i>– James Freeman Clarke.</i><br></p>
+<p align="center"><br><i>Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
