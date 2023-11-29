@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.</i><br><i>– Maya Angelou.</i><br></p>
+<p align="center"><br><i>This is the final test of a gentleman: his respect for those who can be of no possible value to him.</i><br><i>– William Lyon Phelps.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
