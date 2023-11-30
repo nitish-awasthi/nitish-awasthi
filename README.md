@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.</i><br><i>– Woody Allen.</i><br></p>
+<p align="center"><br><i>All great achievements require time.</i><br><i>– Maya Angelou.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
