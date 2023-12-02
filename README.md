@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is not enough to have a good mind; the main thing is to use it well.</i><br><i>– René Descartes.</i><br></p>
+<p align="center"><br><i>Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.</i><br><i>– Arthur Rubinstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
