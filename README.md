@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.</i><br><i>– Walter Lippmann.</i><br></p>
+<p align="center"><br><i>If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.</i><br><i>– Elon Musk.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
