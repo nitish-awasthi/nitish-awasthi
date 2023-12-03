@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am not bothered by the fact that I am unknown. I am bothered when I do not know others.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.</i><br><i>– Anne Bradstreet.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
