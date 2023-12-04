@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our greatest glory is not in never falling, but in rising every time we fall.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>To lead people walk behind them.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
