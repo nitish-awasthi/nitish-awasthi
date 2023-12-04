@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>To lead people walk behind them.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>Those who will play with cats must expect to be scratched.</i><br><i>– Miguel de Cervantes.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
