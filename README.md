@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.</i><br><i>– Daisaku Ikeda.</i><br></p>
+<p align="center"><br><i>The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.</i><br><i>– Dalai Lama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
