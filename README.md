@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Ideas pull the trigger, but instinct loads the gun.</i><br><i>– Don Marquis.</i><br></p>
+<p align="center"><br><i>Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
