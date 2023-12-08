@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>We aim above the mark to hit the mark.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>They say that time changes things, but you actually have to change them yourself.</i><br><i>– Andy Warhol.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
