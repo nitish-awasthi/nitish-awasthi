@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No man has a good enough memory to be a successful liar.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
