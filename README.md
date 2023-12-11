@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Never interrupt someone doing what you said couldn't be done.</i><br><i>– Amelia Earhart.</i><br></p>
+<p align="center"><br><i>Those who dream by day are cognizant of many things which escape those who dream only by night.</i><br><i>– Edgar Allan Poe.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
