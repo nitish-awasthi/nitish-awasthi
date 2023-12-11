@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>People don't notice whether it's winter or summer when they're happy.</i><br><i>– Anton Chekhov.</i><br></p>
+<p align="center"><br><i>Never interrupt someone doing what you said couldn't be done.</i><br><i>– Amelia Earhart.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
