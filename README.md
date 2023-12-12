@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Keep your eyes on the stars and your feet on the ground.</i><br><i>– Theodore Roosevelt.</i><br></p>
+<p align="center"><br><i>Bad times have a scientific value. These are occasions a good learner would not miss.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
