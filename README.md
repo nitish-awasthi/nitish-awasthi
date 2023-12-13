@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Well done is better than well said.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>The power of intuitive understanding will protect you from harm until the end of your days.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
