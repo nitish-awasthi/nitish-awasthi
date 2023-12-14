@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>What is a weed? A plant whose virtues have not yet been discovered.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Wisdom is the power to put our time and our knowledge to the proper use.</i><br><i>– Thomas J. Watson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
