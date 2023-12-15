@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a succession of lessons, which must be lived to be understood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>They can do all because they think they can.</i><br><i>– Virgil.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
