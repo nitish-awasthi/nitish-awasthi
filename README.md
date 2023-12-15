@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The superior man blames himself. The inferior man blames others.</i><br><i>– Don Shula.</i><br></p>
+<p align="center"><br><i>Trust yourself. You know more than you think you do.</i><br><i>– Benjamin Spock.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
