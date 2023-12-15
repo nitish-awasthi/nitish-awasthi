@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom is the power to put our time and our knowledge to the proper use.</i><br><i>– Thomas J. Watson.</i><br></p>
+<p align="center"><br><i>Life is a succession of lessons, which must be lived to be understood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
