@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>They can do all because they think they can.</i><br><i>– Virgil.</i><br></p>
+<p align="center"><br><i>The superior man blames himself. The inferior man blames others.</i><br><i>– Don Shula.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
