@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
+<p align="center"><br><i>He is no fool who gives what he cannot keep to gain what he cannot lose.</i><br><i>– Jim Elliot.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
