@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He is no fool who gives what he cannot keep to gain what he cannot lose.</i><br><i>– Jim Elliot.</i><br></p>
+<p align="center"><br><i>When we are no longer able to change a situation - we are challenged to change ourselves.</i><br><i>– Viktor Frankl.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
