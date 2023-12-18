@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>God gave us the gift of life; it is up to us to give ourselves the gift of living well.</i><br><i>– Voltaire.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
