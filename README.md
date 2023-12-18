@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always be smarter than the people who hire you.</i><br><i>– Lena Horne.</i><br></p>
+<p align="center"><br><i>Life is what happens to you while you're busy making other plans.</i><br><i>– John Lennon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
