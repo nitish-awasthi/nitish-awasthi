@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Leave no stone unturned.</i><br><i>– Euripides.</i><br></p>
+<p align="center"><br><i>By living deeply in the present moment we can understand the past better and we can prepare for a better future.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
