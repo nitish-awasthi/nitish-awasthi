@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>TV and the Internet are good because they keep stupid people from spending too much time out in public.</i><br><i>– Douglas Coupland.</i><br></p>
+<p align="center"><br><i>To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.</i><br><i>– Napoleon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
