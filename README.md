@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Absence makes the heart grow fonder.</i><br><i>– Thomas Haynes Bayly.</i><br></p>
+<p align="center"><br><i>Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
