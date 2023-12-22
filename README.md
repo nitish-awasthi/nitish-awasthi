@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>I cannot always control what goes on outside. But I can always control what goes on inside.</i><br><i>– Wayne Dyer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
