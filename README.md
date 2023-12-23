@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I cannot always control what goes on outside. But I can always control what goes on inside.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>The key to growth is the introduction of higher dimensions of consciousness into our awareness.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
