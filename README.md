@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Each misfortune you encounter will carry in it the seed of tomorrows good luck.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.</i><br><i>– Jonathan Swift.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
