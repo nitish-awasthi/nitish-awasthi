@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.</i><br><i>– Jonathan Swift.</i><br></p>
+<p align="center"><br><i>Absence makes the heart grow fonder.</i><br><i>– Thomas Haynes Bayly.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
