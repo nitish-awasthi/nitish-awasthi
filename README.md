@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing impossible to him who will try.</i><br><i>– Alexander the Great.</i><br></p>
+<p align="center"><br><i>Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.</i><br><i>– Eknath Easwaran.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
