@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.</i><br><i>– Thomas Aquinas.</i><br></p>
+<p align="center"><br><i>Success is where preparation and opportunity meet.</i><br><i>– Bobby Unser.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
