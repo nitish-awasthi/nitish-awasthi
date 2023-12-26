@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your friend is your needs answered.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.</i><br><i>– William Arthur Ward.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
