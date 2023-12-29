@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.</i><br><i>– Farhan Akhtar.</i><br></p>
+<p align="center"><br><i>To study and not think is a waste. To think and not study is dangerous.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
