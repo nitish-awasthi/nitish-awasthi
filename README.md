@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Perfection of means and confusion of ends seems to characterize our age.</i><br><i>– Albert Einstein.</i><br></p>
+<p align="center"><br><i>Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.</i><br><i>– Farhan Akhtar.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
