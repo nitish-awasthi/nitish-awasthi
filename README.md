@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowing others is wisdom, knowing yourself is Enlightenment.</i><br><i>– Laozi.</i><br></p>
+<p align="center"><br><i>We cannot solve our problems with the same thinking we used when we created them.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
