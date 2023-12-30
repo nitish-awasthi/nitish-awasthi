@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The lure of the distant and the difficult is deceptive. The great opportunity is where you are.</i><br><i>– John Burroughs.</i><br></p>
+<p align="center"><br><i>The best way to predict your future is to create it.</i><br><i>– Peter Drucker.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
