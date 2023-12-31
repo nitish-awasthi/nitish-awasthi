@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.</i><br><i>– Martin Luther King Jr..</i><br></p>
+<p align="center"><br><i>Honesty is the first chapter in the book of wisdom.</i><br><i>– Thomas Jefferson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
