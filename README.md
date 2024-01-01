@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have not failed. I've just found 10,000 ways that won't work.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.</i><br><i>– George Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
