@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Quality means doing it right when no one is looking.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>There is nothing permanent except change.</i><br><i>– Heraclitus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
