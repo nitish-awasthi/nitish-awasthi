@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is nothing permanent except change.</i><br><i>– Heraclitus.</i><br></p>
+<p align="center"><br><i>No party has a monopoly on wisdom. No democracy works without compromise.</i><br><i>– Barack Obama.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
