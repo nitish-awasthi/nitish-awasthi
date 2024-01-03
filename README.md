@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>This is why I loved technology: if you used it right, it could give you power and privacy.</i><br><i>– Cory Doctorow.</i><br></p>
+<p align="center"><br><i>Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.</i><br><i>– Mother Angelica.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
