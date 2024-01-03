@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Kindness is the language which the deaf can hear and the blind can see.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>Intuition will tell the thinking mind where to look next.</i><br><i>– Jonas Salk.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
