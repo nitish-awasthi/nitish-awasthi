@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>One of the most beautiful qualities of true friendship is to understand and to be understood.</i><br><i>– Seneca the Younger.</i><br></p>
+<p align="center"><br><i>Kindness is the language which the deaf can hear and the blind can see.</i><br><i>– Mark Twain.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
