@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>As you walk down the fairway of life you must smell the roses, for you only get to play one round.</i><br><i>– Ben Hogan.</i><br></p>
+<p align="center"><br><i>Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.</i><br><i>– Niccolò Machiavelli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
