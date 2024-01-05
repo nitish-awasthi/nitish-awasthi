@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is not something ready-made. It comes from your own actions.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>There are no secrets to success. It is the result of preparation, hard work, and learning from failure.</i><br><i>– Colin Powell.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
