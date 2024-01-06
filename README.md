@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.</i><br><i>– John Adams.</i><br></p>
+<p align="center"><br><i>Unless one is able to live fully in the present, the future is a hoax.</i><br><i>– Alan Watts.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
