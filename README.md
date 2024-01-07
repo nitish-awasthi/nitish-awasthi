@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A hero is no braver than an ordinary man, but he is braver five minutes longer.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Study the past, if you would divine the future.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
