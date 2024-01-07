@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I am a man of fixed and unbending principles, the first of which is to be flexible at all times.</i><br><i>– Everett Dirksen.</i><br></p>
+<p align="center"><br><i>A hero is no braver than an ordinary man, but he is braver five minutes longer.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
