@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The gambling known as business looks with austere disfavor upon the business known as gambling.</i><br><i>– Ambrose Bierce.</i><br></p>
+<p align="center"><br><i>Never do things others can do and will do, if there are things others cannot do or will not do.</i><br><i>– Amelia Earhart.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
