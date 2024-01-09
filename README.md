@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The only person who never makes mistakes is the person who never does anything.</i><br><i>– Denis Waitley.</i><br></p>
+<p align="center"><br><i>If you love life, don't waste time, for time is what life is made up of.</i><br><i>– Bruce Lee.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
