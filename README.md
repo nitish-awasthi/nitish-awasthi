@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Excellence is to do a common thing in an uncommon way.</i><br><i>– Booker T. Washington.</i><br></p>
+<p align="center"><br><i>I never did anything worth doing by accident, nor did any of my inventions come by accident</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
