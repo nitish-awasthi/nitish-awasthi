@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.</i><br><i>– Billy Wilder.</i><br></p>
+<p align="center"><br><i>Setting an example is not the main means of influencing another, it is the only means.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
