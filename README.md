@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.</i><br><i>– Og Mandino.</i><br></p>
+<p align="center"><br><i>Your big opportunity may be right where you are now.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
