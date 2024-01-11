@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All achievements, all earned riches, have their beginning in an idea.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
