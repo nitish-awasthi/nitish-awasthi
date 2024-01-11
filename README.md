@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your big opportunity may be right where you are now.</i><br><i>– Napoleon Hill.</i><br></p>
+<p align="center"><br><i>All achievements, all earned riches, have their beginning in an idea.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
