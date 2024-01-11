@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A wise man can learn more from a foolish question than a fool can learn from a wise answer.</i><br><i>– Bruce Lee.</i><br></p>
+<p align="center"><br><i>I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
