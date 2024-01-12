@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The greatest gift of life is friendship, and I have received it.</i><br><i>– Hubert Humphrey.</i><br></p>
+<p align="center"><br><i>If we did the things we are capable of, we would astound ourselves.</i><br><i>– Thomas Edison.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
