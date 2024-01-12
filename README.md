@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Silence is the true friend that never betrays.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>However rare true love may be, it is less so than true friendship.</i><br><i>– François de La Rochefoucauld.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
