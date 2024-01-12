@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you're trying to create a company, it's like baking a cake. You have to have all the ingredients in the right proportion.</i><br><i>– Elon Musk.</i><br></p>
+<p align="center"><br><i>The greatest gift of life is friendship, and I have received it.</i><br><i>– Hubert Humphrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
