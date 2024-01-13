@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Failure doesn't mean you are a failure it just means you haven't succeeded yet.</i><br><i>– Robert Schuller.</i><br></p>
+<p align="center"><br><i>We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.</i><br><i>– Orson Welles.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
