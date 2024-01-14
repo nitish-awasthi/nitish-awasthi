@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
