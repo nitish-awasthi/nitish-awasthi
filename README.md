@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The virtue of justice consists in moderation, as regulated by wisdom.</i><br><i>– Aristotle.</i><br></p>
+<p align="center"><br><i>I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.</i><br><i>– Woody Allen.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
