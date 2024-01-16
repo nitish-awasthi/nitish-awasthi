@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A business that makes nothing but money is a poor business.</i><br><i>– Henry Ford.</i><br></p>
+<p align="center"><br><i>All phenomena are preceded by the mind, created by the mind, and have the mind as their master.</i><br><i>– The Buddha.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
