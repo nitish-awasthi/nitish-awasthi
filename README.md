@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All phenomena are preceded by the mind, created by the mind, and have the mind as their master.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>Do all things with love.</i><br><i>– Og Mandino.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
