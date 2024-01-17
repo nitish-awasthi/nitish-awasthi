@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is a perfume you cannot pour on others without getting a few drops on yourself.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.</i><br><i>– Morris West.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
