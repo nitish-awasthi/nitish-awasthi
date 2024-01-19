@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love doesn't make the world go round; love is what makes the ride worthwhile.</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>Silence at the proper season is wisdom, and better than any speech.</i><br><i>– Plutarch.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
