@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Build a better mousetrap and the world will beat a path to your door.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Give me six hours to chop down a tree and I will spend the first four sharpening the axe.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
