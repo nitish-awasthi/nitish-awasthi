@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The pine stays green in winter... wisdom in hardship.</i><br><i>– Norman Douglas.</i><br></p>
+<p align="center"><br><i>If one way be better than another, that you may be sure is nature's way.</i><br><i>– Aristotle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
