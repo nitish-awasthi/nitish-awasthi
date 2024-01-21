@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>He has no enemies, but is intensely disliked by his friends.</i><br><i>– Oscar Wilde.</i><br></p>
+<p align="center"><br><i>Wisdom often times consists of knowing what to do next.</i><br><i>– Herbert Hoover.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
