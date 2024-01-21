@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wisdom often times consists of knowing what to do next.</i><br><i>– Herbert Hoover.</i><br></p>
+<p align="center"><br><i>The only limit to our realization of tomorrow will be our doubts of today.</i><br><i>– Franklin D. Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
