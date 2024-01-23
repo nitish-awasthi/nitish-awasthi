@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The most formidable weapon against errors of every kind is reason.</i><br><i>– Thomas Paine.</i><br></p>
+<p align="center"><br><i>A house divided against itself cannot stand.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
