@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be content with your lot; one cannot be first in everything.</i><br><i>– Aesop.</i><br></p>
+<p align="center"><br><i>Whenever something negative happens to you, there is a deep lesson concealed within it.</i><br><i>– Eckhart Tolle.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
