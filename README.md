@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Wise men speak because they have something to say; Fools because they have to say something.</i><br><i>– Plato.</i><br></p>
+<p align="center"><br><i>Rare as is true love, true friendship is rarer.</i><br><i>– Jean de La Fontaine.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
