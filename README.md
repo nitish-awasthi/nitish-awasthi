@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You were not born a winner, and you were not born a loser. You are what you make yourself be.</i><br><i>– Lou Holtz.</i><br></p>
+<p align="center"><br><i>Try not to become a man of success, but rather try to become a man of value.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
