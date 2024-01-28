@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Trust only movement. Life happens at the level of events, not of words. Trust movement.</i><br><i>– Alfred Adler.</i><br></p>
+<p align="center"><br><i>Smile, breathe and go slowly.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
