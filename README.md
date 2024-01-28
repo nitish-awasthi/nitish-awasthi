@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Smile, breathe and go slowly.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.</i><br><i>– Whoopi Goldberg.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
