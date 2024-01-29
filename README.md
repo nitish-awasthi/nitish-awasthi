@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Irony is the gaiety of reflection and the joy of wisdom.</i><br><i>– Anatole France.</i><br></p>
+<p align="center"><br><i>A long habit of not thinking a thing wrong gives it a superficial appearance of being right.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
