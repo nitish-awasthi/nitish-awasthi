@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be slow of tongue and quick of eye.</i><br><i>– Miguel de Cervantes.</i><br></p>
+<p align="center"><br><i>Experience is not what happens to a man. It is what a man does with what happens to him.</i><br><i>– Aldous Huxley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
