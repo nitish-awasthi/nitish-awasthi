@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness often sneaks in through a door you didn't know you left open.</i><br><i>– John Barrymore.</i><br></p>
+<p align="center"><br><i>Try not to become a man of success, but rather try to become a man of value.</i><br><i>– Albert Einstein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
