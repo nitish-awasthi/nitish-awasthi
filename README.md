@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.</i><br><i>– Mark Twain.</i><br></p>
+<p align="center"><br><i>There are no strangers here; Only friends you haven't yet met.</i><br><i>– William Butler Yeats.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
