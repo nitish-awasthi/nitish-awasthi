@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You can't let praise or criticism get to you. It's a weakness to get caught up in either one.</i><br><i>– John Wooden.</i><br></p>
+<p align="center"><br><i>Technology is the campfire around which we tell our stories.</i><br><i>– Laurie Anderson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
