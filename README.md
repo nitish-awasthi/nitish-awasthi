@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Everyone has been made for some particular work, and the desire for that work has been put in every heart.</i><br><i>– Rumi.</i><br></p>
+<p align="center"><br><i>A leader is one who knows the way, goes the way, and shows the way.</i><br><i>– John C. Maxwell.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
