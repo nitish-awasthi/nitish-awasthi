@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Do something wonderful, people may imitate it.</i><br><i>– Albert Schweitzer.</i><br></p>
+<p align="center"><br><i>Two persons cannot long be friends if they cannot forgive each other's little failings.</i><br><i>– Jean de La Bruyère.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
