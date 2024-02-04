@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The fall of dropping water wears away the Stone.</i><br><i>– Lucretius.</i><br></p>
+<p align="center"><br><i>It is with our passions, as it is with fire and water, they are good servants but bad masters.</i><br><i>– Aesop.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
