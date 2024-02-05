@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Our lives are a sum total of the choices we have made.</i><br><i>– Wayne Dyer.</i><br></p>
+<p align="center"><br><i>Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.</i><br><i>– Jane Addams.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
