@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Yesterday I dared to struggle. Today I dare to win.</i><br><i>– Bernadette Devlin.</i><br></p>
+<p align="center"><br><i>The time to repair the roof is when the sun is shining.</i><br><i>– John F. Kennedy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
