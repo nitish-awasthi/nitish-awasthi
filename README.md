@@ -1,9 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you owe the bank 
-<p align="center"><br><i>A man is not old as long as he is seeking something.</i><br><i>– Edmond Rostand.</i><br></p>
-00 that's your problem. If you owe the bank 
-<p align="center"><br><i>A man is not old as long as he is seeking something.</i><br><i>– Edmond Rostand.</i><br></p>
-00 million, that's the bank's problem.</i><br><i>– J. Paul Getty.</i><br></p>
+<p align="center"><br><i>Know, first, who you are, and then adorn yourself accordingly.</i><br><i>– Epictetus.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
