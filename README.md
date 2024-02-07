@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>There are three faithful friends - an old wife, an old dog, and ready money.</i><br><i>– Benjamin Franklin.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
