@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.</i><br><i>– Oprah Winfrey.</i><br></p>
+<p align="center"><br><i>Real success is finding your lifework in the work that you love.</i><br><i>– David McCullough.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
