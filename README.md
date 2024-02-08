@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>You cannot step twice into the same river, for other waters are continually flowing in.</i><br><i>– Heraclitus.</i><br></p>
+<p align="center"><br><i>It is not a lack of love, but a lack of friendship that makes unhappy marriages.</i><br><i>– Friedrich Nietzsche.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
