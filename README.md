@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is a succession of lessons, which must be lived to be understood.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
+<p align="center"><br><i>Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.</i><br><i>– Washington Irving.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
