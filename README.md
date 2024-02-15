@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.</i><br><i>– Margaret Cousins.</i><br></p>
+<p align="center"><br><i>A prudent question is one half of wisdom.</i><br><i>– Francis Bacon.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
