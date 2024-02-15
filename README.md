@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Light tomorrow with today!</i><br><i>– Elizabeth Browning.</i><br></p>
+<p align="center"><br><i>All our knowledge has its origins in our perceptions.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
