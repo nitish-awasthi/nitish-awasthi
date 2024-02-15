@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All our knowledge has its origins in our perceptions.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.</i><br><i>– Margaret Cousins.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
