@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's easy to make a buck. It's a lot tougher to make a difference.</i><br><i>– Tom Brokaw.</i><br></p>
+<p align="center"><br><i>Excellence is to do a common thing in an uncommon way.</i><br><i>– Booker T. Washington.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
