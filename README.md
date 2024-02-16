@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The doorstep to the temple of wisdom is a knowledge of our own ignorance.</i><br><i>– Benjamin Franklin.</i><br></p>
+<p align="center"><br><i>It's easy to make a buck. It's a lot tougher to make a difference.</i><br><i>– Tom Brokaw.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
