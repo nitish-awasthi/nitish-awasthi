@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I believe that we are fundamentally the same and have the same basic potential.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>One secret of success in life is for a man to be ready for his opportunity when it comes.</i><br><i>– Benjamin Disraeli.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
