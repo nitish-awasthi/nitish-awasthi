@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If I know what love is, it is because of you.</i><br><i>– Hermann Hesse.</i><br></p>
+<p align="center"><br><i>Do something wonderful, people may imitate it.</i><br><i>– Albert Schweitzer.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
