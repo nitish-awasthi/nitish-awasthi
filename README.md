@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.</i><br><i>– Dalai Lama.</i><br></p>
+<p align="center"><br><i>Happiness is the reward we get for living to the highest right we know.</i><br><i>– Richard Bach.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
