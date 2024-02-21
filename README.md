@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Happiness is the reward we get for living to the highest right we know.</i><br><i>– Richard Bach.</i><br></p>
+<p align="center"><br><i>The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.</i><br><i>– Michelangelo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
