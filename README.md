@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is a friendship set to music.</i><br><i>– Joseph Campbell.</i><br></p>
+<p align="center"><br><i>Either you run the day or the day runs you.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
