@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>TV and the Internet are good because they keep stupid people from spending too much time out in public.</i><br><i>– Douglas Coupland.</i><br></p>
+<p align="center"><br><i>These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.</i><br><i>– Vernon Cooper.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
