@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.</i><br><i>– Helen Keller.</i><br></p>
+<p align="center"><br><i>Remember always that you not only have the right to be an individual, you have an obligation to be one.</i><br><i>– Eleanor Roosevelt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
