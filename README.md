@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Always bear in mind that your own resolution to succeed is more important than any other.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Trust is the lubrication that makes it possible for organizations to work.</i><br><i>– Warren Bennis.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
