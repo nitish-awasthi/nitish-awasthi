@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Remember always that you not only have the right to be an individual, you have an obligation to be one.</i><br><i>– Eleanor Roosevelt.</i><br></p>
+<p align="center"><br><i>Sometimes the most important thing in a whole day is the rest we take between two deep breaths.</i><br><i>– Etty Hillesum.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
