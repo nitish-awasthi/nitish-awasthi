@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more light you allow within you, the brighter the world you live in will be.</i><br><i>– Shakti Gawain.</i><br></p>
+<p align="center"><br><i>If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.</i><br><i>– Rollo May.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
