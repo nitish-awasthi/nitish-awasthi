@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The weak can never forgive. Forgiveness is the attribute of the strong.</i><br><i>– Mahatma Gandhi.</i><br></p>
+<p align="center"><br><i>The shoe that fits one person pinches another; there is no recipe for living that suits all cases.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
