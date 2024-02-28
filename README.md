@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The shoe that fits one person pinches another; there is no recipe for living that suits all cases.</i><br><i>– Carl Jung.</i><br></p>
+<p align="center"><br><i>Not what we have but what we enjoy constitutes our abundance.</i><br><i>– Jean Antoine Petit-Senn.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
