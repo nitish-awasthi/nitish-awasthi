@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There are people who have money and people who are rich.</i><br><i>– Coco Chanel.</i><br></p>
+<p align="center"><br><i>There is no failure except in no longer trying.</i><br><i>– Elbert Hubbard.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
