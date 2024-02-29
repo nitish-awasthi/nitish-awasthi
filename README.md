@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.</i><br><i>– Booker T. Washington.</i><br></p>
+<p align="center"><br><i>Not all those who wander are lost.</i><br><i>– J. R. R. Tolkien.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
