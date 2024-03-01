@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Not all those who wander are lost.</i><br><i>– J. R. R. Tolkien.</i><br></p>
+<p align="center"><br><i>Life is a travelling to the edge of knowledge, then a leap taken.</i><br><i>– Laurence J. Peter.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
