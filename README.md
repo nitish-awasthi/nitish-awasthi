@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>All that I am, or hope to be, I owe to my angel mother.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Peace begins with a smile.</i><br><i>– Mother Teresa.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
