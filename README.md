@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Patience is the companion of wisdom.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>The World is my country, all mankind are my brethren, and to do good is my religion.</i><br><i>– Thomas Paine.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
