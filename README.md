@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Peace begins with a smile.</i><br><i>– Mother Teresa.</i><br></p>
+<p align="center"><br><i>Patience is the companion of wisdom.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
