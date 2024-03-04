@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>When I do good I feel good, when I do bad I feel bad, and that's my religion.</i><br><i>– Abraham Lincoln.</i><br></p>
+<p align="center"><br><i>Whatever you do in life, surround yourself with smart people who'll argue with you.</i><br><i>– John Wooden.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
