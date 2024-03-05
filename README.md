@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If you have knowledge, let others light their candles in it.</i><br><i>– Margaret Fuller.</i><br></p>
+<p align="center"><br><i>Technology is anything that wasn't around when you were born.</i><br><i>– Man Ray.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
