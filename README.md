@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>If we are not fully ourselves, truly in the present moment, we miss everything.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
+<p align="center"><br><i>He who knows himself is enlightened.</i><br><i>– Laozi.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
