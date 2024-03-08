@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.</i><br><i>– Niccolò Machiavelli.</i><br></p>
+<p align="center"><br><i>Arriving at one point is the starting point to another.</i><br><i>– John Dewey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
