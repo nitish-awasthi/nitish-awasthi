@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Arriving at one point is the starting point to another.</i><br><i>– John Dewey.</i><br></p>
+<p align="center"><br><i>Luck is what happens when preparation meets opportunity.</i><br><i>– Seneca the Younger.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
