@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is easier to live through someone else than to become complete yourself.</i><br><i>– Betty Friedan.</i><br></p>
+<p align="center"><br><i>Impossibilities are merely things which we have not yet learned.</i><br><i>– Charles W. Chesnutt.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
