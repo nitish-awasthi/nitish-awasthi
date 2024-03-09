@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!</i><br><i>– Charlotte Perkins Gilman.</i><br></p>
+<p align="center"><br><i>It is easier to live through someone else than to become complete yourself.</i><br><i>– Betty Friedan.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
