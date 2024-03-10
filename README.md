@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.</i><br><i>– Ovid.</i><br></p>
+<p align="center"><br><i>The world is a book, and those who do not travel read only a page.</i><br><i>– Augustine of Hippo.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
