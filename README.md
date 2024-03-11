@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The eye sees only what the mind is prepared to comprehend.</i><br><i>– Henri Bergson.</i><br></p>
+<p align="center"><br><i>The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
