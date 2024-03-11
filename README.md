@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The things that one most wants to do are the things that are probably most worth doing.</i><br><i>– Winifred Holtby.</i><br></p>
+<p align="center"><br><i>I violated the Noah rule: Predicting rain doesn't count; building arks does.</i><br><i>– Warren Buffett.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
