@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I violated the Noah rule: Predicting rain doesn't count; building arks does.</i><br><i>– Warren Buffett.</i><br></p>
+<p align="center"><br><i>Our kindness may be the most persuasive argument for that which we believe.</i><br><i>– Gordon Hinckley.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
