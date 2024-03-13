@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.</i><br><i>– George Washington.</i><br></p>
+<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
