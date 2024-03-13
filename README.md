@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Your talent is God's gift to you. What you do with it is your gift back to God.</i><br><i>– Leo Buscaglia.</i><br></p>
+<p align="center"><br><i>Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be.</i><br><i>– Thomas à Kempis.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
