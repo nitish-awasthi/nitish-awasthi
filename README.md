@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Logic is the beginning of wisdom, not the end.</i><br><i>– Leonard Nimoy.</i><br></p>
+<p align="center"><br><i>In all chaos there is a cosmos, in all disorder a secret order.</i><br><i>– Carl Jung.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
