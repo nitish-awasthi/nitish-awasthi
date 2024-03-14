@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It's easier to resist at the beginning than at the end.</i><br><i>– Leonardo da Vinci.</i><br></p>
+<p align="center"><br><i>Love is the attempt to form a friendship inspired by beauty.</i><br><i>– Cicero.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
