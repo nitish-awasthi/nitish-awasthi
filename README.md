@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Love is the attempt to form a friendship inspired by beauty.</i><br><i>– Cicero.</i><br></p>
+<p align="center"><br><i>The awareness of our own strength makes us modest.</i><br><i>– Paul Cézanne.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
