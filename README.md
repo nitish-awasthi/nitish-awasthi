@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>A true friend is one who overlooks your failures and tolerates your success!</i><br><i>– Doug Larson.</i><br></p>
+<p align="center"><br><i>Keep yourself to the sunshine and you cannot see the shadow.</i><br><i>– Helen Keller.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
