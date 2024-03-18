@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The first step to getting the things you want out of life is this: decide what you want.</i><br><i>– Ben Stein.</i><br></p>
+<p align="center"><br><i>A true friend is one who overlooks your failures and tolerates your success!</i><br><i>– Doug Larson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
