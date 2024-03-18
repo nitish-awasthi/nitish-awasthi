@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.</i><br><i>– Thomas Edison.</i><br></p>
+<p align="center"><br><i>The first step to getting the things you want out of life is this: decide what you want.</i><br><i>– Ben Stein.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
