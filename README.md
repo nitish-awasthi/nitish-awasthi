@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Give, even if you only have a little.</i><br><i>– The Buddha.</i><br></p>
+<p align="center"><br><i>It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.</i><br><i>– Walter Lippmann.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
