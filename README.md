@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There is no charm equal to tenderness of heart.</i><br><i>– Jane Austen.</i><br></p>
+<p align="center"><br><i>Wisdom has its root in goodness, not goodness its root in wisdom.</i><br><i>– Ralph Waldo Emerson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
