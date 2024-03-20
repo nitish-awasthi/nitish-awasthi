@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The more you care, the stronger you can be.</i><br><i>– Jim Rohn.</i><br></p>
+<p align="center"><br><i>If you cannot do great things, do small things in a great way.</i><br><i>– Napoleon Hill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
