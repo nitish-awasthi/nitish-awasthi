@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>It is the neglect of timely repair that makes rebuilding necessary.</i><br><i>– Richard Whately.</i><br></p>
+<p align="center"><br><i>The more you care, the stronger you can be.</i><br><i>– Jim Rohn.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
