@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.</i><br><i>– Washington Irving.</i><br></p>
+<p align="center"><br><i>He is no fool who gives what he cannot keep to gain what he cannot lose.</i><br><i>– Jim Elliot.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
