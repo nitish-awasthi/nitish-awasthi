@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>They must often change, who would be constant in happiness or wisdom.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>Friendship multiplies the good of life and divides the evil.</i><br><i>– Baltasar Gracián.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
