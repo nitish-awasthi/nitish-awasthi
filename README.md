@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Honesty is the first chapter in the book of wisdom.</i><br><i>– Thomas Jefferson.</i><br></p>
+<p align="center"><br><i>Marriage: A friendship recognized by the police.</i><br><i>– Robert Louis Stevenson.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
