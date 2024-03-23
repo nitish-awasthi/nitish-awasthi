@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>The world is a book, and those who do not travel read only a page.</i><br><i>– Augustine of Hippo.</i><br></p>
+<p align="center"><br><i>The greatest healing therapy is friendship and love.</i><br><i>– Hubert Humphrey.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
