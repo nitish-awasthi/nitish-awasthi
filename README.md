@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Beauty is not in the face; beauty is a light in the heart.</i><br><i>– Kahlil Gibran.</i><br></p>
+<p align="center"><br><i>Give me six hours to chop down a tree and I will spend the first four sharpening the axe.</i><br><i>– Abraham Lincoln.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
