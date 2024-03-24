@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>People ask me what I do in winter when there's no baseball. I'll tell you what I do. I stare out the window and wait for spring.</i><br><i>– Rogers Hornsby.</i><br></p>
+<p align="center"><br><i>Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.</i><br><i>– Thích Nhất Hạnh.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
