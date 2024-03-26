@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Life is really simple, but we insist on making it complicated.</i><br><i>– Confucius.</i><br></p>
+<p align="center"><br><i>The farther backward you can look, the farther forward you can see.</i><br><i>– Winston Churchill.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
