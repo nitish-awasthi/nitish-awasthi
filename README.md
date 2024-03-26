@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Champions keep playing until they get it right.</i><br><i>– Billie Jean King.</i><br></p>
+<p align="center"><br><i>Friends are the siblings God never gave us.</i><br><i>– Mencius.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
