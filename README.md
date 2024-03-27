@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>Knowledge is proud that it knows so much; wisdom is humble that it knows no more.</i><br><i>– William Cowper.</i><br></p>
+<p align="center"><br><i>Life is just a chance to grow a soul.</i><br><i>– A. Powell Davies.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
