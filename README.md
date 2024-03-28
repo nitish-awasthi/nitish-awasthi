@@ -1,5 +1,5 @@
 <!-- QUOTE:START -->
-<p align="center"><br><i>There's power in looking silly and not caring that you do.</i><br><i>– Amy Poehler.</i><br></p>
+<p align="center"><br><i>In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.</i><br><i>– Leonardo da Vinci.</i><br></p>
 <!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
