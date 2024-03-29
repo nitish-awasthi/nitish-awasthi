@@ -1,6 +1,3 @@
-<!-- QUOTE:START -->
-<p align="center"><br><i>Drop by drop is the water pot filled. Likewise, the wise man, gathering it little by little, fills himself with good.</i><br><i>– The Buddha.</i><br></p>
-<!-- QUOTE:END -->
 
 ### <h2>नमस्ते (Namaste)🙏,I'm</h2>
   <br>
